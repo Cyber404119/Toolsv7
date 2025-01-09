@@ -1,3 +1,1163 @@
-z="
-";Xbz='onra';hrz=' (Pi';sdz='ثلة ';Zjz='xx "';qbz='تعرف';SRz='tuk ';Jaz=' efe';QIz='iet ';dTz='er';njz='rmat';sKz='┼┬▀░';Tqz='kela';mMz='al=$';cUz='ntV1';Efz='ل ال';Jjz='CROG';xNz='︎"';Nbz='ütfe';HVz='ishe';rpz='Halo';Ioz=' Ter';bnz='mitm';gpz=' seg';lrz='epos';Hbz=' sat';Tdz='بقيم';ykz='un s';Viz='ウアン・';nQz='apt ';xFz='⠀⣿⠀⠀';IGz='d.mp';mmz='n da';GPz='n}[2';KIz=' pgr';qPz='h Me';pNz='e}  ';Saz=', si';mpz='alam';cmz=' nom';xSz='eg -';ULz='𝟒 �';hSz='/Sxp';qCz='Terd';iRz='sdca';GJz='Berm';vnz='ehin';YFz='⠀⠀⠞⣡';WCz='SCRI';JDz='N !!';Iiz='✨デポ3';Zdz='قصير';Nlz='enga';CXz='//ze';DYz=' الم';Lfz=' الت';Fpz='laku';xVz='aloa';dMz='n} J';VBz='Term';dgz='اتصل';NHz=' "Ma';COz='1]◉ ';kkz='ting';Wjz=' ジュガ';VUz='g up';EOz=' PAI';Vnz=' tin';xgz='ة لل';sEz=' Sca';Fmz='ngat';GGz='IK="';blz='rhub';qHz='doan';bbz='ları';Lbz='iyor';VQz='d/In';Ccz='ت با';Aaz='w} S';Xez='بط ه';Xqz=' uni';Yiz='%';OLz='�𝐲.';JOz='RV3 ';uqz=' Nom';TJz=':$i+';JXz='مساء';KYz='خلال';XBz='anim';QUz='k-IP';XSz='pcwa';bJz='=200';NMz='nlin';MOz='5]◉ ';oOz='Hack';kLz=' Git';daz='lerc';vRz='ring';JRz='pamV';LQz='cd';dXz=' عمي';Maz='i ta';kCz='e} I';FJz='oga ';sBz='  SC';lGz='} Lo';Ifz='لنجا';APz='ZPHI';vz='y';koz='ng d';OJz='<${#';npz='a. n';UJz='1}"';UMz='"pts';wOz='t "';pcz='ن ال';ONz='ORKA';HJz='anfa';Anz='di-u';rfz='، سأ';mgz='هذه ';iYz='ذبح ';NRz='star';TVz='V3';eHz=' ]; ';Krz='sv7 ';vWz='run.';Rez='فه ك';wYz='ضحاي';ymz='k da';TXz=' فرا';SYz=' أشع';lqz='mere';kVz='nenu';ySz='wget';EJz=' Sem';Ymz='ters';YPz='WHAT';IHz='dak ';cOz='9]◉ ';Ppz='pada';Nz='[35;';Gbz='rını';lTz='11)';VOz='U PS';AVz='ech/';bdz=' لم ';Oaz='r mu';aoz='Yth.';AFz='404"';biz='BARU';Tgz='ل فل';Mlz='in m';uz='te -';gGz='; do';viz='AN、P';wTz='12)';nfz='. طف';lNz='HONX';lUz='ILAN';XDz='CARA';qIz='Teri';PJz='}; i';DQz='🔥 ]';Fnz='ikar';vZz='d?ph';HWz='ier';Ygz='فلك ';pfz='ي مك';dNz='═╝"';PFz='⠴⠘⣉⢡';Nrz='nggu';UDz='5X D';LJz='et}"';LEz='then';NJz='0; i';JTz='bria';uPz='� ]"';RFz='⡆⢶⠀⣶';CJz=' Too';Mez='صدق ';idz='آتي ';bgz='�🔪☠';Sz=''\''\03';drz='Bash';oHz='s Or';mVz='date';kez='-han';laz='alya';tXz='الذك';Nhz='DAN ';Bnz='nban';HGz='Soun';faz='sanı';Giz='新規メン';FSz='/Cyb';FBz='bash';bSz='de.g';gBz='══╗"';WIz='l=no';sZz='what';mBz='ERVE';DBz='on2 ';MQz='Seda';wmz=' per';ahz='DEPO';clz='ung ';cGz='for ';hEz='read';Boz='engg';KBz=' ins';bWz='tTR.';nDz='! "';Doz='an l';iJz='ndV2';Mgz='ل عل';IWz=' tim';Ubz='aşın';Rz='red=';dWz='adap';flz='ail ';vlz='atuh';XPz='NED ';oiz='パサラン';Kaz='ndim';iqz='ka a';WJz='"\r\';gWz='21)';Emz='a sa';Laz=' ben';Vhz='シトゥス';cIz='p3 M';ARz='thub';wJz='██░└';Daz='SALI';RGz='g Me';rVz=' --u';Vdz=',000';nLz='s://';Phz='FRAT';dLz='l -s';Mdz='أن أ';fIz='3 Mu';iKz='░▐██';ogz='ية ل';Qnz='rika';DXz='foy.';pVz='etim';CHz='i!!!';BYz=' الح';UVz='on m';LPz='ER-7';nWz='oss.';ylz=' keb';Foz='an W';pEz='╗"';ICz='me=2';Xjz=' ディ ';Waz='anıt';Arz='ls.g';wcz='اء ا';dGz='i in';SQz='!!!"';vmz='n me';oFz='⠂⠘⠛⠛';hBz=';1m║';KUz='ky26';QOz='7]◉ ';lMz='angg';jVz=' pho';siz='🏅 T';PKz='│▐██';Vrz='rade';GEz='-q "';ETz='pamE';jpz='but.';oJz='░░░░';VFz='⠋⠀⢘⣿';mez='ied-';pHz='ang ';RCz='l() ';FMz='lis ';Ez=''\''';oPz=' Pil';Zez='رو ب';QVz='-use';Kdz=' تري';WLz='e}◉$';mWz='on d';gPz='olsv';WYz=' أن ';acz=' 000';EKz='┌┘▄▄';REz='else';aFz='⢸⣿⣿⡟';ZHz='"$pa';MFz='⣀⠉⣉⣙';yGz='0%]"';uiz='K IK';qQz='it -';Xrz='et..';uEz='g On';Aqz='Anda';XTz='ng';Znz='an b';saz='capi';POz='RV6 ';ukz='mban';HFz='⣀⣠⣤⠤';dJz='o-vi';XKz='░░└─';RVz='nt';LNz='{ora';Qez=' يخا';GBz='pip ';IUz='13)';fdz='لاً ';giz='ピン無料';Bkz=' wha';Qaz='z? T';Noz='erha';aqz='ysto';wRz='-V1';EXz='com/';Ihz='} DA';MZz='xgor';jQz=' dit';ZLz='dres';lVz='mber';FCz='quie';pbz=' هل ';CEz='en';Ejz='T、HA';Qkz='ain,';kKz='█░░▐';lXz='ر ال';Upz='i de';Tz='3[31';TLz='𝟒𝟎';JIz='if !';eRz='nter';mhz='00';rHz='g wk';fz='al='\''';oGz=' "${';odz='💀🔪';GMz='17 D';tOz='Shir';Erz='ls.s';yEz='xyzz';oTz='ect-';Skz='ong ';Lgz='ستبد';Bz='='\''\0';MIz='f mp';BFz='╝"';CRz='/Hen';Sez='ل شخ';cJz=' --n';pqz='ak s';Ghz='!🔪�';ooz='itud';Odz='، من';tgz='ا تخ';oYz='ا أق';OXz='ي أن';ucz='ها ا';fKz='▄██';lz='r';Wrz=' Pak';SSz='tNam';RMz='x | ';bMz='7 🤡';Xcz=' لقد';dPz=']◉ U';lkz=' Yan';qMz='m-%Y';nNz='04 ┃';EWz=' geo';iiz='席';BUz='-Wa.';ZNz=' : 6';irz='p2).';Uz=';1m'\''';HXz='مرحب';Haz=' Mer';Shz='P HA';HRz='git';DJz='lsv7';tNz='AMME';pKz='▌░░░';vEz='line';Ncz='ء ال';RTz='d +x';sTz='ers';LGz='USIK';akz=' di ';RIz='-vid';Zbz='ut O';bBz=' -e ';rmz='dmin';bcz=' ملي';Apz='ikan';jIz='k6.m';Zkz='saya';UUz='& pk';qrz='04 �';Dkz='ya y';vUz='dept';nZz='بي أ';cKz='▀█▀░';rNz=' MEN';EUz='Wa';paz='r 👇';tiz='EMBA';jFz='⣿⣿⣷⣝';FEz='rep ';DTz='Exon';VGz=' Har';jKz='└─▄█';oqz='ika ';TSz='izak';NQz='ng M';pXz='الي ';Kcz='في ج';yIz=' Sud';ZUz='url';CBz='pyth';bZz=' رؤي';kXz='مباش';kNz='BY T';oVz=' dat';uJz='██▌│';kHz='dall';VJz='05';Dlz='r : ';AJz='aah ';vGz='2';bz='oran';WDz='N SE';boz=' Tim';uWz=' sok';xkz='i ak';AOz='➣ ${';lQz='an!!';HZz='نيه ';lBz='ID T';gVz='phon';LXz='ير، ';uCz='laka';lZz='الات';Qgz='م تس';pCz='lum ';vOz='Osin';Liz='50+2';dqz='emak';Yaz='ım. ';kTz='ecke';Bez='م👽�';qXz='300 ';Yhz='ペルカヤ';Diz='TARA';gDz='IKA ';jCz='rang';Cqz='elan';poz='uh s';bfz='ا عم';vIz='emua';Hkz='di k';ijz=' Wha';lez='ds-t';qoz='ebag';xqz='/All';xBz='SES ';eUz='sint';Cfz='تنس ';hJz=' Sou';yFz='⠀⠀⢻⡁';FXz='24)';Cnz=' dar';oXz='� حو';bqz='re, ';RHz='" pa';BRz='.com';Bhz='رت ا';jmz='tas ';ZXz='ح خد';Hoz='aik.';eFz='⣧⣙⠶⣿';omz='bang';wHz='atau';ACz='mpv ';lIz='sik8';QRz='Ente';Mkz='gan ';fNz='{blu';Udz='ة 10';PPz='View';LKz=' ░ ░';sRz='zzAl';yBz='"';KEz='D"; ';lEz=': " ';QPz=' Tik';ZIz='mp3 ';MWz='on o';lhz='20,0';oZz='دناه';TPz='ED W';hjz='oper';VEz='ahka';FNz='r= |';sLz='4041';Vkz='ngka';inz='kete';dCz='K TE';coz='nyam';Clz='nomo';Uoz='erik';RXz='سي، ';UTz='h';cNz='7665';SEz='l';qz='rage';SZz='-lin';Asz='${re';Eoz='ayan';edz='أموا';jDz='KENA';uBz=' DAP';Frz='99)';Vmz='p da';qYz='البث';knz='n ya';xYz='ا';Mhz='KSI ';wjz='tolo';doz='paik';Ckz='p sa';gQz=' "Fi';Khz='AN P';tDz='whoa';fZz='التو';LZz='رى';YHz='& [ ';kMz='n} T';yMz='lah ';YSz='5)';sez='ذا ا';wLz='ID: ';enz='akan';gRz='p 0';dkz='n ba';IEz='TERM';vYz='ع ال';UCz=' TID';AGz='⠀⢸⠀⠀';sVz='pgra';QNz='G JI';Ocz='عالم';lKz='█─┬┬';yjz='uka ';rPz='nu T';Soz='yang';xRz='pam-';Icz=' ومخ';fBz='════';Vaz='mi t';CVz='sher';Aoz='li m';fGz='.10}';sjz='ukan';TEz='fi';cSz='it';gXz='قتل ';Bjz='OKER';cQz=' --r';roz='ai s';Ukz='imba';dFz='⠈⠃⠙⢿';SHz='sswo';Spz='omun';GWz='carr';cdz='تحول';hYz='عد ل';DKz='░┌┘░';sNz='U SP';nUz='cd T';PQz='nsta';UXz='نكسب';wlz='i at';YVz='colo';GCz='t --';nXz='بي �';yaz='n-ha';KDz=' JIK';KQz='1)';ZKz='██▄░';alz='g te';DPz='T-NO';UOz='  𖤍';Kez=' بي ';CWz='b';Mz='\033';JFz='⠶⠶';uSz='ebp ';Egz=' الج';Dsz=' Tid';QQz='ll T';Ogz='00 إ';pSz='make';sSz='8)';LLz='UTHO';pMz='%d-%';EVz='phis';tLz='19"';aCz='yan}';XFz='⠄⠀⠀⠀';CIz='! Si';Rjz=' GAM';agz='أسه�';Gnz='enak';cHz='옌조이키';mkz='g be';lgz='خبر ';ePz='pdat';NBz='h -y';mLz='http';xlz='uran';iVz='bers';ABz='inst';qWz='ROKO';fCz='IFIK';bCz=' ID ';nYz='ًا م';Akz='akun';fez='ng-u';dIz='usik';xIz='Yang';OIz='hen';hz='rese';uZz='/sen';jbz='eya ';DNz='s -o';qLz='om/C';KHz='muka';Whz='・テラマ';mXz='خاص ';iDz='NDA ';xHz=' Use';EZz='ت كل';Ykz='kun ';bYz='طلب ';ybz=' مار';qkz='adi ';VSz='cwa';sYz=' على';cqz='na s';Imz='alka';aTz='r7/N';fHz=' Lu ';ghz='APAT';iTz='./kt';PBz='util';Blz='ini ';QZz='ideo';qZz='�';ggz='أدنا';Ehz=' الآ';uVz='load';Jkz='a ka';Pez='الذي';rlz='a si';FZz='يتيه';OWz='/Hun';TTz='pt.s';AQz='ilih';xcz='لداخ';xZz='+62x';miz='🏅トー';nlz='ahan';Klz='Saya';Cjz='、IDN';Vqz='n se';dOz='Enco';Wbz='ha S';Jfz='ة من';BZz='اء ج';Ibz='ın a';GOz='2]◉ ';Rlz='onan';NZz='e.ne';hmz=' kas';shz='an m';aaz=' vid';liz='.5%';eaz='e in';FRz='Spam';AUz='s!!!';CFz='⠤⣤⣤⣤';WZz='ment';Pdz=' فضل';uRz='-pai';lSz='4';eIz='3.mp';nRz='z404';xmz='untu';oQz='node';Xlz='What';MMz='us-O';KFz='⢠⣤⣤⡄';ycz='لية ';jGz='${ye';aHz='rd" ';vFz='⠀⢸⠃⠀';Slz=' unt';ORz='t';sUz='e5.p';bEz='&& M';NPz='OKOV';dDz='AN T';sgz='، ول';Kfz=' هذا';tbz='ًا س';ihz='ス!!!';NLz='🜲 �';aVz=' col';Gz='n='\''\';Jiz='0+15';Fgz='لأخر';Knz='akuk';pz='-sto';AZz=' أعض';Ojz='NG、T';VNz='MER ';KMz='n} S';dez='t/ch';vgz='ذه ا';kIz='7.mp';Pkz='ng l';vrz='luar';bez='فل..';Npz='App.';NGz=' the';jdz='إلى ';eLz=' ifc';Idz='ا كن';vCz='n PR';Nkz='atas';Aiz='ースピン';YUz='te c';ddz=' لي ';Xdz='�في ';Rfz='يا م';gaz=' öld';LUz='93/L';Cbz='n Vü';bhz=' HAR';SFz='⣶⡦';aSz='vknd';tEz='nnin';jcz='2016';Tez='ص عل';qUz='V5';bjz='MTHO';EMz='} Ri';sIz='sih ';dfz='مايك';Uqz='laia';mNz='YZZ4';HQz='case';ifz='بحاج';mRz='nxyz';Amz='ijak';jBz=';1m ';tIz='Bany';uDz='mi)';KGz='LE_M';iez='with';Ypz='kelu';BKz='██░░';OPz='7 "';rnz='tifk';SPz='BANN';lDz='ENAP';JYz='لهدف';WXz=' أنا';aIz='Musi';MPz='SHIR';oWz='22)';Unz='ak m';Fsz='esac';EQz='═•➤ ';pUz='LAN-';HNz='t -u';cBz='"\03';fWz='on S';vcz='لأعض';vhz='eh b';tkz='erti';lYz='️';woz='ali.';Bcz='كوبا';Vfz='س اب';OQz='engi';rXz='ضحية';LOz='RV4 ';TCz='  ID';yLz='hoam';MEz='"${g';Csz='*)';DLz='▄███';toz='il d';XOz=' && ';Xpz='an, ';lCz='D Te';GZz=' وعي';NXz='وا ل';SXz='اسمي';pez='te/';kdz='منزل';URz='ali ';LVz='ests';WNz='TELE';qSz='./ma';Wfz='، اس';Pnz='embe';tFz='⠛⠀⠀⠀';fDz='V7 J';Eiz='N';fOz='ash ';ITz='/pem';Ugz='ن أت';QXz='م نف';GYz=' طري';Biz=' SAT';CPz='TV3 ';Brz='cd A';gIz='sik4';gez='p-a-';YGz='u!!!';CDz='zz40';iHz='Cuma';HMz='esem';Hmz='gand';Qz='6;1m';Gqz='App?';khz='入金額 ';Hgz='ذا أ';Sgz='الما';ZOz='ING ';QEz='UX"';mjz='erho';aZz='تريد';PRz='e}Te';Flz='2"';eKz='▄░░░';VRz='ke T';ZCz='"${c';Djz=' SLO';GHz='ile ';rWz='V7.g';Oiz='50';ldz='ك مع';dEz='kan ';sPz='V7 [';PHz='assw';gCz='ASI ';FKz='▄▄▄░';CQz='[ 🤡';Scz='خبرك';ZGz='play';jnz='ntua';BVz='zphi';Rdz='ل لي';Zmz='ebut';IZz='وأعض';Gkz='ban ';epz='p ag';Rkz=' tol';slz='ap u';MRz='all';VTz='10)';JQz='y in';wgz='لقضي';eqz='in d';Xnz='n sp';TWz='cd G';HUz='wa.p';MLz='R : ';Gpz='tind';rbz='ني😈';Fbz='anla';Uhz='!';Vpz='ngan';qdz='قائق';JCz='00 I';qOz='IP-T';Ucz='تجرب';IBz='il -';GUz='ack_';Gjz='RO、P';BIz='lah!';GSz='er40';Oz='1m'\''';PTz='Cryp';qnz='diak';GTz='9)';FQz=' : "';DRz='gker';nOz='s "';aKz='░░▄▄';ZPz='SAPP';oSz='l-W4';NWz='19)';QSz='4)';RKz='░▄░░';TZz='s-bo';wWz='sh';SNz='DA B';QBz='s gr';Fkz='ena ';oaz='ikle';FFz='⠀⠀⠀⠀';DOz='SPAM';yTz='Meng';erz='.. "';PVz='fake';Ziz='ーナスメ';dz='[31;';ygz='شرطة';WQz='stal';MDz='DA M';PYz='يرا ';Zcz='000.';hqz='i ma';jYz='الجم';Hz='033[';RRz='r Un';lRz=' Tho';LDz='A AN';Uez='ى هذ';xXz='كما ';YOz='HACK';PCz='asi_';sDz='X=$(';FYz='ة عن';mCz='rmux';Nez='أنني';XLz='n} I';Qhz='IS S';Glz='da T';sz='pkg ';Yfz='قدم ';smz='tsAp';BEz='; th';RBz='ep';imz='ih a';llz='as k';Hdz='🔪إذ';yfz=' وال';wKz='┴┴┴┴';OOz='6]◉ ';EGz='⠀';ppz='a : ';Umz='hara';nGz='g!!"';rIz='maka';QMz='s au';QWz='s/Gh';soz=' Gma';OBz='core';ESz='3)';jz='0m'\''';Naz='nıyo';Xhz='ンとテル';xfz='عائه';rJz='░░▀█';YEz='an U';lFz='⣛⣵⡿⠋';qqz='eger';Yz='yell';rDz='ERMU';UQz='dcar';BQz='Menu';FHz='ed}F';yqz='-Too';OGz='n';sMz='ekar';loz='iblo';HLz='═╗"';YXz=' لفت';Ljz='G、SP';aDz='ANGA';kcz='💀☠️';jlz=' maa';yiz='、TOG';ajz='25)';Qoz='ja s';LSz='g-Co';Hlz='im W';ATz='imag';hNz='ll-P';nhz='🦋 最';YIz='ik1.';Grz='  Se';Esz='ak A';Lez='لا ت';rOz='RACK';gHz='beba';Fhz='ن !!';CNz='=$(p';dmz='or s';IJz='at �';oEz='w}══';UNz='7 NO';SWz='rack';kaz='ir p';ERz='V78/';xaz='an-i';oMz='e +"';UBz='"ID-';XEz='sukk';lOz='Foll';pgz='أي ش';eDz='OOLS';fVz='s';fXz='لقد ';WMz='ELAM';tKz='░░▐█';Hjz='GSOF';Hqz='matu';kQz='emuk';hez='man-';Dcz='دوت�';cCz='TIDA';Zlz=' yan';tCz='  Si';hGz=' -ne';wz='upgr';jPz='elua';rgz='بدًا';Siz='カド';fFz='⣿⡷⢘⣡';WOz='HING';iOz='OSIN';TDz='YAK ';anz='erko';XRz='!"';Jcz='يفة ';gbz='m👹�';Ybz=' Vüc';Qdz='ك حو';iPz=']◉ K';ydz=' اخت';JGz='3"';Ulz='elak';wez='ل بن';vVz='urll';Lpz='aku ';hZz='مع خ';ZDz='SA J';qGz='i}0%';wkz=' lag';pmz='nda ';Pbz=' Kıs';QDz=' LOG';YRz=' -n ';kJz='████';aiz='ンバー ';ccz='ون ق';tPz=' 😈�';Adz='سم ا';qjz='u me';hQz='le t';fgz='رقم ';tcz='لبيع';upz='pa A';hoz='n ag';LRz='npm ';Kqz='ng A';Gmz=' men';Crz='ll-T';Vz='whit';CTz='ick ';gJz='op=0';Ebz=' Org';lfz='رفة ';aEz='ame ';nKz='┬─█▌';dUz='cd O';pdz=' 5 د';mfz='حقيق';TGz='ksa ';uLz='n} Y';Bdz='لإنس';jLz='◉${c';opz='omor';sqz='at s';Zhz=' 💯';UZz='dy-d';gfz='ن). ';Fqz='entu';gjz='evel';Mcz='أنحا';Cpz='wa s';xDz='"$FI';dnz='ggun';cWz='20)';jez='-his';Jbz='lmak';JUz='/Mak';nqz='an j';fUz=' Tom';eWz='-Wa';ISz='/Spa';KSz='irin';lbz='i👇�';Yoz=' 62x';UGz='User';nnz='on a';iNz='roje';Sbz=' Biz';Zqz=' Pla';Dhz='ة سأ';XVz='18)';EEz='if g';ohz='低出金額';yHz='rnam';TRz='Kemb';wUz='h=1 ';SKz='▀▀██';Wgz='في ط';NCz='p 2';trz='p 00';hVz='enum';VZz='isme';mGz='adin';AKz='░██';aYz='إذا ';sJz='███│';NEz='reen';Mbz='z😈L';Iaz='haba';thz='odal';KPz='-LAY';CSz=' spa';Iez='بط ا';qmz='da A';vaz='f-de';HDz='ERIN';Jgz='لحاد';WWz='k';FOz='RV1 ';Oqz='aya.';srz='00)';apz=', da';EYz='ركزي';NKz='██│░';xhz='dapa';eSz='V78.';tfz=' وأب';DWz='pars';vez='فاتص';GKz='▄▄▄▄';aUz='curl';LWz='V2';KXz=' الخ';bPz='e}➣ ';gNz='e} A';Kiz='✨ デポ';cPz='}[99';Wlz='an a';uOz='oko ';glz='. Sa';ciz=' 50%';vjz='nan ';qpz='5"';KNz=')"';BWz='pnum';YDz=' PAK';NNz=' LAP';Gaz='NYA!';cXz='حشية';QYz='ما أ';Wnz='daka';WTz='gola';HOz='RV2 ';waz='ad-m';hUz='/h20';Kz='purp';Piz='💎 ボ';Qmz='ri-h';jOz='T-NI';Yrz='. "';PUz='Laca';Zz='ow='\''';vqz='or W';Opz='gant';xpz='r ak';Mqz='kepa';kGz='llow';xOz='ux-T';Abz='iti/';Ofz='اتل.';pGz='}[${';hnz=' den';oBz='KASI';gnz='suai';Drz=' All';foz='ermo';Jnz=' mel';LTz='/Bas';Prz='e.mp';nez='-a-m';yhz='t フリ';LMz='etat';ZJz='--vo';maz='ço💀';iIz='ik5.';vpz='memb';mPz='Sila';EFz='⣀⣀⠀⠀';ehz='NGSU';Zgz='في ر';urz='w}Ke';xJz='┐░░░';MCz='slee';MUz='acak';bHz='= "케';cZz='تي م';HSz='4119';AIz='e Sa';Hrz='dang';phz=' 50,';Tpz='ikas';EDz='"${y';lHz=' Rec';xz='ade ';uQz='git ';DFz='⣄⣀⣀⣀';xMz=' Jum';CLz='██▄▄';iLz='P" "';ufz='يع د';ELz='"${p';SCz='{';Woz='r sa';Thz='RI!!';IYz='اع ا';vBz='AT D';pTz='ID/t';Koz='kasi';vkz='gkan';Agz='قضيب';Jz='m'\''';Onz='n Gm';OMz='e : ';Iz='32;1';IOz='3]◉ ';IXz='ًا، ';ANz='Peng';hgz='ه فو';iaz=' kat';BOz='n}[0';cEz='asuk';wIz='nya ';OSz='Pair';vJz='▐██';ENz=' use';Njz='GAMI';vTz='bot.';hOz='0]◉ ';Vez='ه ال';EPz='T-TR';joz='a ya';fRz='..."';rKz='┼┼┼┼';Tcz=' عن ';DHz=' ""';noz='na d';afz='، أن';xLz='$( w';WSz='cd s';mYz='غالب';DGz='⠀⠀⠀⠿';Zpz='arga';fcz=' الأ';Mpz='di W';jMz='S")"';dhz='I LA';cpz='kerj';sGz='p 0.';XUz='e';DZz='وأخذ';wNz='PP ☣';BMz='-Pre';qgz='خص أ';snz='an k';Pqz=' Jik';eEz='Pasw';AHz='g Se';gqz='baik';Kjz='AMIN';LBz='tall';kmz='perh';DMz='}◉${';Elz='62xx';xPz='"╚══';Lnz='pam ';eez='oppi';GXz='3[36';USz='e/sp';EIz='an C';Ekz='terk';Qrz='Pake';uGz=']"';Wiz='ケンバリ';oUz='4MPI';vKz='░└┴┴';OTz='ash-';aLz='s Ka';ngz='القض';gFz='⣿⣿⣿⣷';Xgz='عن ط';iQz='idak';tjz=' Per';jNz='cts=';Faz='HODE';BPz='SHER';SUz='14)';Obz='n En';Mmz=' kom';Xiz=' 100';wrz=' Dar';BDz='onxy';rTz='k-fo';HCz='volu';Pgz='ذا ل';hbz='�İns';YLz='P Ad';PLz='𝐓𝐡';voz='kemb';Hhz='� "';UWz='host';Jez='لخاص';yz='-y';nFz='⠉⠻⣿⣶';Hfz='يد ا';Goz='App ';GVz=' zph';dZz='ة وت';LCz='mp3';FGz='_MUS';eGz=' {1.';Rqz='a er';cVz='a';cLz='(cur';tRz='tar/';mIz=' &';Bpz=' bah';IMz='ber ';orz='pull';WVz='py';FTz='xon';Ahz=' أخب';GLz='e}══';JBz='pip2';SVz='ntV3';JEz='UX" ';ZRz='1 -s';Hez='الرا';uKz='█▄░░';Qqz='a ad';KLz='n} A';SGz='meri';ndz='قائي';dbz='azır';Qbz='a Sü';QLz='𝐨𝐧';eZz='ريد ';rrz='�☕"';WKz='▐█▌░';ez='norm';aPz='All-';tz='upda';kWz='DOSV';qfz='اننا';cYz='أحد ';jaz='il b';emz=': 62';MJz='((i=';vdz='مت ب';iCz='"${o';tMz='Hari';bLz='mu=$';jXz='ث ال';jJz='ed}';Rmz='ari ';xCz='M Du';Dz='4;1m';wZz='one=';CCz='-ter';Tfz='مي ا';ipz='dica';Cz='33[3';uYz='RE م';eJz='deo ';eNz='╰┈➤$';ZEz='sern';Srz='....';djz='1"';XHz=' ] &';OYz='ي كث';DVz='cd z';hFz='⣄⠀⠀⠀';bkz='kare';Nfz=' الق';Mfz='هديد';XYz='يأمر';iMz='%M:%';OZz='t/go';Mrz='p Tu';WPz='UBAN';Ijz='T、MI';nz='ux-s';fqz='iper';diz='ーナスピ';LHz='n!"';Ajz='EL、J';Bmz='an y';UIz='ume=';iUz='-stu';nVz='time';mqz='potk';Zaz='Adım';cbz='nı H';fbz='cağı';Wpz=' tem';WUz='grad';FPz='ACK ';FUz='on h';Ndz='فترس';lcz=' جئت';FDz='ello';fQz='&';sbz=' حسن';NDz='EMAK';Ufz='لوات';Ngz='300.';RJz='${te';UEz=' Sil';qTz='ikto';HBz='psut';fpz='ar b';jHz='n Mo';xGz='}[10';nTz='/Inj';Rnz='n ja';yOz='emaa';IRz='cd S';XXz=' هنا';aez='الأس';Yqz='ll W';eMz='aam=';YKz='▀██';mHz='ode ';gTz='uild';xiz='atic';Fez='أن ت';dKz='░▓▄▄';TMz=' -c ';ckz='naka';olz=' lak';xoz='a me';MGz='" ];';xdz='م أو';Kgz='ث، ا';Lrz='Hara';jhz='🦋最低';hdz='سوف ';PEz='ux: ';OKz='███░';GDz='w} P';SJz='ks:0';RUz='.py';JVz='17)';XIz=' Mus';RLz='𝐱𝐲';MKz='▐█ᯤ█';Taz='ze k';taz='tati';mrz='itor';iWz='SV7.';eCz='RVER';IVz='r.sh';jjz='tsap';HKz='▄└┐░';Xmz='meng';pDz='exit';wSz='ffmp';WGz='ap T';rjz='ngaj';qcz='مزيد';chz='I IN';JWz='ezon';XCz='PT T';qBz=';1m╚';ROz='RV7 ';WFz='⢳⣦⣌⠳';pRz=';;';yPz='══Si';fjz='da D';eVz='uest';mZz='صال ';fSz='78';Vjz='セカラン';NFz='⠒⠤⣀⠀';Ikz='aren';Toz=' dib';Qiz='ーナスア';RZz='-jun';gUz='15)';JNz='c -l';DSz='m.js';uNz='R WH';Tiz='ーナスス';niz='ゲル40';uaz='on-o';mKz='┬┬┬┬';qez='جاة ';KWz='ntV2';prz='cts ';yUz='tr-t';DCz='mina';pWz='/SHI';oCz='a Be';OHz='an P';WEz='n Ma';sWz='HIRO';nIz='teks';IPz='p-Wa';Lcz='ميع ';Vgz='ردد ';lLz='hub=';gEz='ya!!';Gcz='ريمة';Vbz='📲Da';ZZz='كنت ';efz='ل بر';hKz='█▌░░';SIz='eo -';aMz='OLSV';KRz='80';ASz='ing-';ynz='at k';Tkz='pert';YMz='G DI';igz='را !';HEz='$ID_';plz=' dan';cFz='⡿⠁';Dbz='cudu';rYz='باشر';Oez='دوت ';PIz='--qu';RYz='لذلك';xez='ا عل';fnz='p se';udz='اص ق';wGz='done';Rbz='rede';tQz=' npm';rkz=' moh';bQz=']; t';UPz='HATS';yDz='LE_I';iXz=' الب';rcz='الفر';MVz='pyfi';mbz='�👇';DEz='asi';fYz='فأنا';qFz='⠉⠀⠀⠀';Loz='h at';Riz='ンチルン';IDz='GATA';Irz=' Men';qNz='  ☣︎';abz='rgan';LIz='ep -';Nqz='da s';hfz='لست ';Sqz='ror/';Roz='ama ';tBz='RIPT';fPz='e-To';yJz='░░┌┘';wqz='26)';Igz='راد ';CYz='كومة';PDz='NTUK';Jdz='ت لا';fTz='go b';MNz='nge}';oKz='░░██';THz='rd';vDz='if [';ADz='e Th';oIz='="${';dpz='a, s';QGz='edan';XNz='PON ';hpz='era ';Joz='ima ';TOz='RV8 ';Kkz='n ke';riz='ブカジノ';wiz='ragm';LFz='⣤⣤⣤⠄';bFz='⢁⡻⣸⣿';Nmz='unik';Olz='juka';RNz='KA A';gMz='te +';BJz='Join';Uaz='endi';tYz=' XGO';bRz='-p "';XZz='-cas';MXz='اسمح';grz='il..';Fiz='ボーナス';QHz='! : ';UHz=' "$u';frz='Psut';Dgz='عضاء';ffz='ونسو';ofz='لك ف';Rgz='ترد ';Lmz='pp u';CZz='سده ';iFz='⠀⢠⣾⣿';tGz='1';FWz='code';bIz='k2.m';rFz='⠀⠉⠉⠉';JHz='dite';az='[33;';xQz='tps:';hIz='.mp3';jgz='!!';Qfz='بًا ';fkz=' nya';Edz='أريد';egz=' بال';gZz='اصل ';yQz='//gi';Cez='�️ ع';BHz='lesa';bmz='bali';QCz='gaga';yoz='mast';SMz='grep';jqz='sema';wdz='قتله';cgz='️☠️.';qKz='▀┬┼┼';Xkz='gi a';eiz='ーターハ';NSz='.git';kqz='kin ';Ujz='キ ム ';Ylz='sApp';aOz='𖤍"';AMz='i )"';ZWz='.txt';Ooz='tian';Sfz='ستخد';VKz='┘░░░';oez='ache';aWz='Ghos';Mjz='ADE ';ncz=' للب';Zrz='gins';obz='بًا،';Kmz='atsA';rBz='══╝"';ljz='ng t';iBz=' \03';jiz='ポーツブ';yNz='═══╝';Qlz='rmoh';MSz='deV1';tez='لتهد';VPz='AAP ';whz='isa ';dlz='lama';yrz='7!!!';caz=' yüz';uMz='=$(d';yCz='lu K';xKz='┴┘░░';ocz='حث ع';kgz='xx';Aez='راقه';jZz='ي، ي';ILz='w}◉$';jEz='" Ma';Xoz='ya :';JZz='ائه ';uFz='⠀⠀⣿⡇';NVz='glet';mFz='⠀⠀';fmz='x Te';hMz='"%H:';HTz='on2';Fcz='هر ج';Qpz='p un';Snz='hwa ';TNz='UG D';Inz='disa';pkz='an J';JMz='2024';YTz='/Mr-';KCz='DV1.';qVz='pip3';tlz='ntuk';rGz='] "';crz='on3.';Hiz='バー';mJz='███▀';skz='on p';Hcz=' قتل';YQz='lv1.';pQz='js g';gKz='▄─┘█';kRz='kv45';aNz='2856';Enz='pp d';HHz='3 ti';pPz='ihla';kbz='n Et';YZz='e/';Urz='gupg';JLz='{cya';IQz=' $ku';Zoz='4"';spz='ng-o';raz='t/de';BLz='░░░▄';Hnz='an s';Pfz='xxxx';TIz='-vol';aQz='LE" ';ujz='moho';ODz='SA U';VCz='AK T';yWz='xdg-';JKz='│██ᯤ';PNz='N BU';pFz='⠛⢛⡛⠋';rUz='styl';CGz='⠀⠀⠀⡇';bKz='▄▓░░';ekz='nyak';fLz='onfi';hLz=')"$I';dYz='خدما';cnz='en u';hHz='n!! ';dBz='3[32';Ynz='am d';jfz='ة إل';wXz='اث، ';UKz='██▀─';oLz='gith';XMz='ATAN';VWz='Trac';VXz='لوت،';KKz='█▌ ░';eXz='قة';wBz='I AK';baz='eoda';yVz='der';brz='Pyth';AEz='D" ]';vfz='ماغه';gLz='g.me';arz='tal ';jrz='gklo';cez='.';tnz='emba';cjz='DE V';iz='t='\''\';aXz='مة ق';rMz='")"';fMz='$(da';iEz=' -p ';eOz='de B';fJz='--lo';Eqz=' ket';Tnz=' tid';Uiz='ロット ';BCz='--no';mdz=' أصد';jkz=' pen';ulz=' mem';Kbz=' ist';Ipz='n be';XGz='ungg';FIz='oba ';rez='من ه';XQz='v1/I';BNz='guna';amz=' kem';Cmz='berl';Qjz='REND';mcz=' إلى';RPz='tok ';mEz='user';tUz='16)';gSz='7)';Chz='لشرط';Moz='as p';Kpz='ji u';Yjz=' カミ';Ilz='hats';qRz='2)';Nnz=' aku';wMz='+"%A';dRz='an E';AWz=' as ';mTz='php';Fdz=' بيع';Poz=' ker';SOz='8]◉ ';oz='etup';uez='يد، ';bTz='IK-c';lpz='ya d';aJz='lume';ZBz=') {';nrz='y...';SDz='EBAN';Iqz='hi a';sXz=' من ';vPz='  -e';FLz='urpl';STz='-cry';tJz='░░░│';RDz='IN S';TYz='ر با';jSz='Brut';JPz='DDOS';bpz='n re';BSz='V1';vQz='clon';YCz='IDAK';eTz='cd N';klz='f at';EBz='on3 ';RSz='/Zel';nkz=' Cad';kDz='PA-K';ZSz='/Rey';jTz='p-ch';nHz='Tool';nBz='RIFI';Bbz='İnsa';KVz='requ';NTz='ypt';xEz='Thon';hRz='cd /';JSz='m-Pa';DIz='lahk';uIz='ak S';TUz='te &';tVz='de i';ZFz='⣴⣧⠻⣄';tpz='p. M';moz='kir ';Fz='gree';Cdz='ان ا';qJz='▀░░░';Az='blue';Jmz='n Wh';bGz='" &';Rrz='t...';pZz=' 💀�';ugz='بر ه';PMz='$( p';VMz='/" )';GIz='Lagi';umz='ingi';onz='gar ';ikz='tasi';ALz='███▄';lWz='7';tmz='p, S';wpz='loki';MTz='h-Cr';Trz='... ';eoz='an p';aRz=' -r ';kiz='ック 2';ZTz='Psta';GFz='⠀⠀⠀⣀';icz='عام ';cfz='يل (';hkz='umen';tZz='sapp';fhz='NG D';Tmz=' ber';KZz='الأخ';VVz='ain.';mSz='cd B';MBz=' bas';lnz='erla';YBz='asi(';mlz='esal';hcz=' في ';yYz='قطعت';Dqz='ggar';Baz='ILAH';tqz='aya,';Okz=' ora';Gfz='ت تر';yZz='xxx ';QTz='chmo';dVz=' req';wDz=' -f ';tHz='😂☕"';GQz=' kuy';NYz='لأنن';Qcz='حسنً';SLz='𝐳𝐳';sFz='⠛⠀⠉⠒';mDz='A !!';RQz='ools';kUz='T4MP';CMz='mium';lmz='atia';gz=' [ 0';pOz='-Wa ';vSz='js -';Bqz='alas';OCz='}';Tjz='カン ホ';Ecz='� أش';iZz='دمات';ibz='an V';Eaz='N MT';bDz='N SA';uTz='php ';Wmz='pat ';KTz='hmad';Epz='k me';pjz='a ma';EHz='"${r';Hpz='m da';xWz='23)';QJz='++))';cDz='LAHK';FVz='her';nJz='▀▀░░';scz='ائس ';rEz='lue}';pnz='a da';rqz='ngem';Coz='unak';Rhz='ETIA';nPz='hkan';Cgz='يع أ';ecz='مئات';dHz='마시베"';uHz='e} P';Eez='فقط ';wEz=' By.';yXz='قتلت';ejz='Kepa';rSz='in';uXz='ور و';sCz='r !!';Gez='فتح ';Jqz='tura';WBz='ux"';lPz='ed} ';BGz='⠀⠀⠘⡇';aBz='echo';vbz='ك عل';sQz='aptt';tTz='cd t';ojz=' Say';Dpz='tida';piz='🏅 ゲ';bVz='oram';qaz='👇👇';qiz='ームライ';mOz='ower';qhz='000';TFz='⣄⢻⣿⣧';pYz='وم ب';Wez='أرض ';Rcz='ا سأ';DUz='ack-';Wcz='ت هو';PXz=' أقد';VIz='95 -';ioz='ar a';GRz='V80.';kz='clea';Tbz='e Ul';wbz='ى نف';Voz='an. ';gmz='rima';wVz='ib';Ohz='RTP ';VLz='�"';OFz='⠀⠀⠀⣠';GNz=' sor';hPz='}[00';kpz='aman';oRz='.sh';AXz='open';eQz='y-qu';nmz='rtim';unz='li s';dcz='تلت ';IKz='██▌░';WHz=' = "';rRz='/Han';gYz=' مست';okz='angk';tdz='لأشخ';HYz='ق خد';fiz='ンター';nCz=' And';ZQz='mp3"';Xfz='محوا';hTz=' *';wCz='EMIU';IFz='⠤⠴⠶⠶';nbz=' مرح';vLz='our ';TKz='█▌│░';Sjz='DLL';iSz='-ID/';kYz='يع ⚠';INz=' | w';Pcz='👹🔥';Niz='100+';TQz='="/s';Afz='فور ';kEz='an-U';hWz='/DDO';RWz='ostT';uUz='e --';ZMz='I TO';hlz='ya m';xrz='i To';Tlz='uk m';Bsz='set}';Xz='37;1';Gdz='ها😈';Pz='cyan';Caz='KAN ';cMz='🔥"';yRz='pair';jWz='cd D';OUz='cd L';CUz='cd H';PWz='xByt';pBz=' "';uoz='apat';Miz='5';QKz='█▀▀░';dQz='eall';Lz='le='\''';SBz='FILE';cTz='heck';sfz='طفلك';haz='üren';pJz='░▀▀▀';ypz='un W';qEz='"${b';HIz='!!!.';naz=' Çiz';OVz='uuid';Lqz='beri';Wz='e='\''\';mnz='ku. ';oNz='═══╗';Dfz='تحوي';Lhz='REDI';wFz='⠀⣾⠀⠀';LYz=' الن';Llz=' ing';BTz='emag';tSz='libw';MHz=' -sp';Acz='كوسي';kFz='⡳⠶⠶⠾';fEz='ordn';xjz='ng b';gOz='n}[1';BBz='all ';hDz='HP A';adz=' إذا';Raz='amam';Dnz='i Wh';AYz=' 🗡️';tWz='KOV7';rhz='deng';YNz='SAYA';XWz='irem';Jhz='PATK';sOz='ER "';bXz='تل و';Omz='asi ';YYz='ني أ';IIz=' 1';oDz='DV2.';Smz='dan ';mz='term';MYz='ظر';rdz='😈أم';gkz=' dok';Ldz='دني ';eBz=';1m╔';Dmz='aku.';Ydz='وقت ';ZYz='حد، ';Xaz='acağ';Ggz='ى. إ';bOz='}➣ $';ZVz='rama';ECz='l --';yKz='░▄██';Pjz='OP T';nMz='(dat';eYz='ت ال';qlz=' say';pIz='ge} ';HPz='Sada';vHz='ord ';vMz='ate ';wPz='le}║';XJz='K"';xbz='سي. ';ubz='أعرف';Rpz='berk';KJz='{res';krz='ne R';wnz='gga ';QFz='⣤⡤⠐⣶';Fjz='BANE';NUz='-IP';hCz='!! "';kSz='al-W';jRz='rd/p';elz='t em';mQz='" >&';Bgz=' وجم';UYz='لملل';nSz='ruta';pLz='ub.c';Pmz='seha';iGz=' "\r';bNz='9158';kBz='    ';rZz='api.';sHz='wkw ';VHz='ame"';VDz='ENGA';Jrz='gupd';rQz='yarn';bUz='/Osi';ebz='laya';Sdz='ال. ';Paz='sunu';Alz='aya ';goz='hona';gdz='💸💵';mUz='-V5';UFz='⠻⠇⠋⠀';WRz='v7!!';dSz='6)';xnz=' dap';Dez='ليك ';hiz='ーナス欠';hXz='نظام';kZz='رجى ';Wkz='n la';rCz='afta';rz=' -y';Wqz='i, s';vXz='الإن';hhz=' ボーナ';Vlz=' unb';Ycz='ت 50';nEz='name';gcz='شخاص';kOz='K "';ilz='ohon';CKz='└┐░░';Ddz='لتي ';NOz='RV5 ';wfz=' وأم';PGz='e} S';VYz=' دون';NIz='v; t';Ciz='U PU';DDz='4!!"';Jpz='rjan';lJz='███';Orz='v1/U';Ffz='ل إذ';rLz='yber';Zfz='نفسي';BXz=' "ht';KOz='4]◉ ';uhz=' rec';Jlz='App,';Lkz='isen';cz='ge='\''';YWz='ents';TBz='_ID=';Wdz='💸 �';kPz='r "';OEz='}ID ';wQz='e ht';cRz=' Tek';yez='ى ال';PZz='re-v';qDz='ID_T';Bfz='ولا ';Vcz='تي😈';vNz='ATSA';kjz='p ya';Yez='و تا';xUz='om/h';Mnz='dari';JJz='�🙏$';kfz='ى مع';Plz='n pe';YJz='p 1';aGz=' -q ';xTz=' Sed';PSz='Code';jUz='dio/';
-eval "$Az$Bz$Cz$Dz$Ez$z$Fz$Gz$Hz$Iz$Jz$z$Kz$Lz$Mz$Nz$Oz$z$Pz$Bz$Cz$Qz$Ez$z$Rz$Sz$Tz$Uz$z$Vz$Wz$Hz$Xz$Jz$z$Yz$Zz$Mz$az$Oz$z$bz$cz$Mz$dz$Oz$z$ez$fz$Mz$gz$Jz$z$hz$iz$Hz$jz$z$kz$lz$z$mz$nz$oz$pz$qz$rz$z$kz$lz$z$sz$tz$uz$vz$z$sz$wz$xz$yz$z$sz$ABz$BBz$CBz$DBz$yz$z$sz$ABz$BBz$CBz$EBz$yz$z$sz$ABz$BBz$FBz$rz$z$GBz$ABz$BBz$HBz$IBz$vz$z$JBz$KBz$LBz$MBz$NBz$z$sz$ABz$BBz$OBz$PBz$QBz$RBz$z$kz$lz$z$SBz$TBz$UBz$VBz$WBz$z$XBz$YBz$ZBz$z$kz$lz$z$aBz$bBz$cBz$dBz$eBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$gBz$z$aBz$bBz$cBz$dBz$hBz$iBz$Tz$jBz$kBz$kBz$kBz$lBz$mBz$nBz$oBz$pBz$z$aBz$bBz$cBz$dBz$qBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$rBz$z$aBz$bBz$cBz$dBz$eBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$gBz$z$aBz$bBz$cBz$dBz$hBz$iBz$Tz$jBz$kBz$kBz$sBz$tBz$uBz$vBz$wBz$xBz$yBz$z$aBz$bBz$cBz$dBz$qBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$rBz$z$ACz$BCz$CCz$DCz$ECz$FCz$GCz$HCz$ICz$JCz$KCz$LCz$z$MCz$NCz$z$OCz$z$XBz$PCz$QCz$RCz$SCz$z$kz$lz$z$aBz$bBz$cBz$dBz$eBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$gBz$z$aBz$bBz$cBz$dBz$hBz$iBz$Tz$jBz$kBz$kBz$TCz$UCz$VCz$mBz$nBz$oBz$pBz$z$aBz$bBz$cBz$dBz$qBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$rBz$z$aBz$bBz$cBz$dBz$eBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$gBz$z$aBz$bBz$cBz$dBz$hBz$iBz$Tz$jBz$kBz$kBz$WCz$XCz$YCz$uBz$vBz$wBz$xBz$yBz$z$aBz$bBz$cBz$dBz$qBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$rBz$z$aBz$bBz$ZCz$aCz$bCz$cCz$dCz$eCz$fCz$gCz$hCz$z$aBz$bBz$iCz$jCz$kCz$lCz$mCz$nCz$oCz$pCz$qCz$rCz$sCz$tCz$uCz$vCz$wCz$xCz$yCz$ADz$BDz$CDz$DDz$z$aBz$bBz$EDz$FDz$GDz$HDz$IDz$JDz$KDz$LDz$MDz$NDz$ODz$PDz$QDz$RDz$SDz$TDz$UDz$VDz$WDz$XDz$YDz$ZDz$aDz$bDz$cDz$dDz$eDz$fDz$gDz$hDz$iDz$jDz$kDz$lDz$mDz$nDz$z$ACz$BCz$CCz$DCz$ECz$FCz$GCz$HCz$ICz$JCz$oDz$LCz$z$pDz$z$OCz$z$qDz$rDz$sDz$tDz$uDz$z$vDz$wDz$xDz$yDz$AEz$BEz$CEz$z$XBz$DEz$z$EEz$FEz$GEz$HEz$IEz$JEz$xDz$yDz$KEz$LEz$z$aBz$bBz$MEz$NEz$OEz$VBz$PEz$HEz$IEz$QEz$z$REz$z$XBz$PCz$QCz$SEz$z$TEz$z$REz$z$pDz$z$TEz$z$kz$lz$z$kz$lz$z$aBz$bBz$ZCz$aCz$UEz$VEz$WEz$XEz$YEz$ZEz$aEz$bEz$cEz$dEz$eEz$fEz$gEz$yBz$z$hEz$iEz$jEz$XEz$kEz$ZEz$aEz$lEz$mEz$nEz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$qEz$rEz$sEz$tEz$uEz$vEz$wEz$xEz$yEz$AFz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$aBz$bBz$ZCz$aCz$z$CFz$DFz$EFz$FFz$FFz$FFz$FFz$FFz$FFz$GFz$HFz$IFz$JFz$z$KFz$LFz$MFz$NFz$FFz$FFz$FFz$FFz$OFz$PFz$QFz$RFz$SFz$z$TFz$UFz$VFz$WFz$XFz$FFz$FFz$FFz$YFz$ZFz$aFz$bFz$cFz$z$dFz$eFz$fFz$gFz$hFz$FFz$FFz$FFz$iFz$jFz$kFz$lFz$mFz$z$FFz$nFz$oFz$pFz$qFz$FFz$FFz$FFz$FFz$rFz$sFz$tFz$mFz$z$FFz$uFz$FFz$vFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$mFz$z$FFz$uFz$FFz$wFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$mFz$z$FFz$uFz$FFz$xFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$mFz$z$FFz$yFz$FFz$AGz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$mFz$z$FFz$BGz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$mFz$z$FFz$CGz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$FFz$mFz$z$FFz$DGz$FFz$FFz$FFz$FFz$FFz$EGz$z$yBz$z$SBz$FGz$GGz$HGz$IGz$JGz$z$vDz$wDz$xDz$KGz$LGz$MGz$NGz$OGz$z$aBz$bBz$iCz$jCz$PGz$QGz$RGz$SGz$TGz$UGz$nEz$VGz$WGz$XGz$YGz$yBz$z$ZGz$aGz$xDz$KGz$LGz$bGz$z$cGz$dGz$eGz$fGz$gGz$z$aBz$hGz$iGz$jGz$kGz$lGz$mGz$nGz$oGz$Pz$pGz$qGz$rGz$z$MCz$sGz$tGz$z$aBz$hGz$iGz$jGz$kGz$lGz$mGz$nGz$oGz$Pz$pGz$qGz$uGz$z$MCz$sGz$vGz$z$wGz$z$aBz$hGz$iGz$jGz$kGz$lGz$mGz$nGz$oGz$Pz$xGz$yGz$z$aBz$bBz$MEz$NEz$lGz$mGz$AHz$BHz$CHz$yBz$z$aBz$DHz$z$REz$z$aBz$bBz$EHz$FHz$GHz$HGz$IGz$HHz$IHz$JHz$KHz$LHz$z$TEz$z$hEz$MHz$NHz$XEz$OHz$PHz$fEz$gEz$QHz$RHz$SHz$THz$z$aBz$DHz$z$vDz$UHz$ZEz$VHz$WHz$xEz$yEz$AFz$XHz$YHz$ZHz$SHz$aHz$bHz$cHz$dHz$eHz$LEz$z$aBz$bBz$ZCz$aCz$fHz$gHz$hHz$iHz$jHz$kHz$lHz$mHz$nHz$oHz$pHz$qHz$rHz$sHz$tHz$z$kz$lz$z$REz$z$aBz$bBz$iCz$jCz$uHz$PHz$vHz$wHz$xHz$yHz$AIz$BIz$CIz$DIz$EIz$FIz$GIz$HIz$yBz$z$pDz$IIz$z$TEz$z$JIz$KIz$LIz$MIz$NIz$OIz$z$ACz$PIz$QIz$BCz$RIz$SIz$TIz$UIz$VIz$CCz$DCz$WIz$XIz$YIz$ZIz$aIz$bIz$cIz$dIz$eIz$fIz$gIz$hIz$XIz$iIz$ZIz$aIz$jIz$cIz$dIz$kIz$fIz$lIz$hIz$mIz$z$REz$z$kz$lz$z$TEz$z$nIz$oIz$bz$pIz$qIz$rIz$sIz$tIz$uIz$vIz$wIz$xIz$yIz$AJz$BJz$CJz$DJz$EJz$FJz$GJz$HJz$IJz$JJz$KJz$LJz$z$cGz$MJz$NJz$OJz$nIz$PJz$QJz$gGz$z$aBz$hGz$iGz$RJz$SJz$TJz$UJz$z$MCz$sGz$VJz$z$wGz$z$aBz$bBz$WJz$Hz$XJz$z$MCz$YJz$z$ACz$ZJz$aJz$bJz$cJz$dJz$eJz$fJz$gJz$hJz$iJz$hIz$z$kz$lz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$ZCz$aCz$sEz$tEz$uEz$vEz$wEz$xEz$yEz$AFz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$aBz$bBz$EHz$jJz$z$kJz$kJz$kJz$kJz$kJz$kJz$lJz$z$kJz$mJz$nJz$oJz$pJz$kJz$lJz$z$kJz$qJz$oJz$oJz$oJz$rJz$lJz$z$sJz$oJz$oJz$oJz$oJz$tJz$lJz$z$uJz$oJz$oJz$oJz$oJz$tJz$vJz$z$wJz$xJz$oJz$oJz$oJz$yJz$AKz$z$BKz$CKz$oJz$oJz$oJz$DKz$AKz$z$BKz$EKz$FKz$oJz$GKz$HKz$AKz$z$IKz$JKz$KKz$LKz$MKz$NKz$vJz$z$OKz$PKz$QKz$RKz$SKz$TKz$lJz$z$UKz$VKz$oJz$WKz$oJz$XKz$YKz$z$ZKz$aKz$bKz$cKz$dKz$eKz$fKz$z$kJz$gKz$hKz$oJz$iKz$jKz$lJz$z$kJz$kKz$lKz$mKz$nKz$oKz$lJz$z$kJz$pKz$qKz$rKz$sKz$tKz$lJz$z$kJz$uKz$vKz$wKz$xKz$yKz$lJz$z$kJz$ALz$oJz$oJz$BLz$kJz$lJz$z$kJz$kJz$CLz$GKz$DLz$kJz$lJz$z$kJz$kJz$kJz$kJz$kJz$kJz$lJz$z$yBz$z$aBz$bBz$ELz$FLz$GLz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EDz$FDz$ILz$JLz$KLz$LLz$MLz$NLz$OLz$PLz$QLz$RLz$SLz$TLz$ULz$VLz$z$aBz$bBz$iCz$jCz$WLz$JLz$XLz$YLz$ZLz$aLz$bLz$cLz$dLz$eLz$fLz$gLz$hLz$iLz$z$aBz$bBz$qEz$rEz$jLz$aCz$kLz$lLz$mLz$nLz$oLz$pLz$qLz$rLz$sLz$tLz$z$aBz$bBz$iCz$jCz$WLz$JLz$uLz$vLz$wLz$xLz$yLz$AMz$z$aBz$bBz$qEz$rEz$jLz$aCz$CJz$DJz$BMz$CMz$yBz$z$aBz$bBz$MEz$NEz$DMz$Pz$EMz$FMz$GMz$HMz$IMz$JMz$yBz$z$aBz$bBz$iCz$jCz$WLz$JLz$KMz$LMz$MMz$NMz$OMz$PMz$QMz$RMz$SMz$TMz$UMz$VMz$yBz$z$aBz$bBz$EDz$FDz$ILz$JLz$KMz$WMz$vBz$XMz$YMz$ZMz$aMz$bMz$cMz$z$aBz$bBz$ELz$FLz$WLz$JLz$dMz$eMz$fMz$gMz$hMz$iMz$jMz$z$aBz$bBz$iCz$jCz$WLz$JLz$kMz$lMz$mMz$nMz$oMz$pMz$qMz$rMz$z$aBz$bBz$EDz$FDz$ILz$JLz$KMz$sMz$pHz$tMz$uMz$vMz$wMz$rMz$z$aBz$bBz$qEz$rEz$jLz$aCz$xMz$yMz$ANz$BNz$CNz$DNz$ENz$FNz$GNz$HNz$INz$JNz$KNz$z$aBz$bBz$EDz$FDz$ILz$LNz$MNz$NNz$ONz$PNz$QNz$RNz$SNz$TNz$ZMz$aMz$UNz$VNz$WNz$XNz$YNz$ZNz$aNz$bNz$cNz$pBz$z$aBz$bBz$ELz$FLz$GLz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$aBz$bBz$ZCz$aCz$eNz$fNz$gNz$hNz$iNz$jNz$kNz$lNz$mNz$nNz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$oNz$yBz$z$aBz$bBz$iCz$jCz$pNz$qNz$rNz$sNz$tNz$uNz$vNz$wNz$xNz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$yNz$yBz$z$aBz$bBz$qEz$rEz$AOz$Fz$BOz$COz$DOz$EOz$FOz$yBz$z$aBz$bBz$qEz$rEz$AOz$Fz$BOz$GOz$DOz$EOz$HOz$yBz$z$aBz$bBz$qEz$rEz$AOz$Fz$BOz$IOz$DOz$EOz$JOz$yBz$z$aBz$bBz$qEz$rEz$AOz$Fz$BOz$KOz$DOz$EOz$LOz$yBz$z$aBz$bBz$qEz$rEz$AOz$Fz$BOz$MOz$DOz$EOz$NOz$yBz$z$aBz$bBz$qEz$rEz$AOz$Fz$BOz$OOz$DOz$EOz$POz$yBz$z$aBz$bBz$qEz$rEz$AOz$Fz$BOz$QOz$DOz$EOz$ROz$yBz$z$aBz$bBz$qEz$rEz$AOz$Fz$BOz$SOz$DOz$EOz$TOz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$oNz$yBz$z$aBz$bBz$iCz$jCz$pNz$UOz$rNz$VOz$WOz$XOz$YOz$ZOz$aOz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$yNz$yBz$z$aBz$bBz$MEz$NEz$bOz$JLz$BOz$cOz$dOz$eOz$fOz$yBz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$hOz$iOz$jOz$kOz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$COz$lOz$mOz$nOz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$GOz$oOz$pOz$yBz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$IOz$qOz$rOz$sOz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$KOz$tOz$uOz$vOz$wOz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$MOz$VBz$xOz$yOz$pBz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$OOz$APz$BPz$pBz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$QOz$iOz$CPz$yBz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$SOz$iOz$DPz$VNz$yBz$z$aBz$bBz$MEz$NEz$bOz$JLz$gOz$cOz$iOz$EPz$FPz$yBz$z$aBz$bBz$MEz$NEz$bOz$JLz$GPz$hOz$HPz$IPz$pBz$z$aBz$bBz$MEz$NEz$bOz$JLz$GPz$COz$JPz$KPz$LPz$pBz$z$aBz$bBz$MEz$NEz$bOz$JLz$GPz$GOz$MPz$NPz$OPz$z$aBz$bBz$MEz$NEz$bOz$JLz$GPz$IOz$PPz$QPz$RPz$yBz$z$aBz$bBz$MEz$NEz$bOz$JLz$GPz$KOz$SPz$TPz$UPz$VPz$yBz$z$aBz$bBz$MEz$NEz$bOz$JLz$GPz$MOz$WPz$XPz$YPz$ZPz$pBz$z$aBz$bBz$MEz$NEz$bOz$JLz$GPz$OOz$aPz$nHz$nOz$z$aBz$bBz$iCz$jCz$bPz$jGz$kGz$cPz$dPz$ePz$fPz$gPz$OPz$z$aBz$bBz$iCz$jCz$bPz$jGz$kGz$hPz$iPz$jPz$kPz$z$aBz$bBz$ELz$FLz$GLz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$EHz$lPz$mPz$nPz$oPz$pPz$qPz$rPz$eDz$sPz$tPz$uPz$z$aBz$bBz$ELz$FLz$GLz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$aBz$vPz$oGz$Kz$wPz$yBz$z$aBz$vPz$oGz$Kz$wPz$yBz$z$aBz$vPz$oGz$Kz$wPz$yBz$z$aBz$vPz$oGz$Kz$wPz$yBz$z$aBz$vPz$oGz$Kz$wPz$yBz$z$hEz$iEz$xPz$yPz$DIz$OHz$AQz$yMz$BQz$CQz$DQz$fBz$fBz$EQz$FQz$GQz$z$HQz$IQz$JQz$z$KQz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$nQz$ABz$BBz$oQz$pQz$qQz$vz$z$nQz$ABz$BBz$rQz$rz$z$sQz$KBz$LBz$tQz$rz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$CRz$DRz$ERz$FRz$GRz$HRz$z$IRz$JRz$KRz$z$LRz$ABz$MRz$z$rQz$KBz$LBz$z$LRz$NRz$ORz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$qRz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$nQz$ABz$BBz$oQz$pQz$qQz$vz$z$nQz$ABz$BBz$rQz$rz$z$sQz$KBz$LBz$tQz$rz$z$LRz$ABz$MRz$z$rQz$KBz$LBz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$rRz$sRz$tRz$FRz$uRz$vRz$wRz$z$IRz$xRz$yRz$ASz$BSz$z$oQz$CSz$DSz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$ESz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$nQz$ABz$BBz$oQz$pQz$qQz$vz$z$nQz$ABz$BBz$rQz$rz$z$sQz$KBz$LBz$tQz$rz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$FSz$GSz$HSz$ISz$JSz$KSz$LSz$MSz$NSz$z$IRz$xRz$OSz$ASz$PSz$BSz$z$LRz$ABz$MRz$z$rQz$KBz$LBz$z$LRz$NRz$ORz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$QSz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$nQz$ABz$BBz$oQz$pQz$qQz$vz$z$nQz$ABz$BBz$rQz$rz$z$sQz$KBz$LBz$tQz$rz$z$rQz$KBz$LBz$z$LRz$ABz$MRz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$RSz$SSz$TSz$USz$VSz$z$WSz$XSz$z$LRz$NRz$ORz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$YSz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$nQz$ABz$BBz$oQz$pQz$qQz$vz$z$nQz$ABz$BBz$rQz$rz$z$sQz$KBz$LBz$tQz$rz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$ZSz$aSz$ISz$JSz$KSz$LSz$bSz$cSz$z$IRz$xRz$OSz$ASz$PSz$z$LRz$ABz$MRz$z$rQz$KBz$LBz$z$LRz$NRz$ORz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$dSz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$nQz$ABz$BBz$oQz$pQz$qQz$vz$z$nQz$ABz$BBz$rQz$rz$z$sQz$KBz$LBz$tQz$rz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$CRz$DRz$ERz$FRz$eSz$HRz$z$IRz$JRz$fSz$z$LRz$ABz$MRz$z$rQz$KBz$LBz$z$LRz$NRz$ORz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$gSz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$hSz$iSz$jSz$kSz$lSz$z$mSz$nSz$oSz$z$pSz$KBz$LBz$z$qSz$rSz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$sSz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$sz$ABz$BBz$tSz$uSz$yz$z$sz$ABz$BBz$oQz$vSz$vz$z$sz$ABz$BBz$wSz$xSz$vz$z$sz$ABz$BBz$ySz$rz$z$sz$ABz$BBz$ATz$BTz$CTz$yz$z$sz$ABz$BBz$LRz$yz$z$sz$ABz$BBz$rQz$rz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$CRz$DRz$ERz$FRz$DTz$NSz$z$IRz$ETz$FTz$z$rQz$KBz$LBz$z$LRz$NRz$ORz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$GTz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$sz$ABz$BBz$CBz$HTz$z$sz$ABz$BBz$HRz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$ITz$JTz$KTz$LTz$MTz$NTz$z$mSz$OTz$PTz$ORz$z$QTz$RTz$KBz$LBz$STz$TTz$UTz$z$FBz$KBz$LBz$STz$TTz$UTz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$VTz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$sz$ABz$BBz$WTz$XTz$z$sz$ABz$BBz$HRz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$YTz$ZTz$aTz$bTz$cTz$dTz$z$eTz$bTz$cTz$dTz$z$fTz$gTz$z$QTz$RTz$hTz$z$iTz$jTz$kTz$lz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$lTz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$EHz$lPz$MQz$NQz$OQz$PQz$QQz$RQz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$sz$ABz$BBz$mTz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$nTz$oTz$pTz$qTz$rTz$kGz$sTz$z$tTz$qTz$rTz$kGz$sTz$z$uTz$vTz$mTz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$wTz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$CRz$DRz$ERz$oOz$BUz$HRz$z$CUz$DUz$EUz$z$CBz$FUz$GUz$HUz$vz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$IUz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$JUz$KUz$LUz$MUz$NUz$z$OUz$MUz$NUz$z$CBz$DBz$PUz$QUz$RUz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$SUz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$sz$tz$TUz$UUz$VUz$WUz$XUz$z$sz$tz$YUz$ZUz$z$sz$ABz$BBz$aUz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$FSz$GSz$HSz$bUz$cUz$NSz$z$dUz$eUz$BSz$z$FBz$fUz$nRz$oRz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$gUz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$hUz$iUz$jUz$kUz$lUz$mUz$z$nUz$oUz$pUz$qUz$z$CBz$DBz$rUz$sUz$vz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$tUz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$uUz$vUz$wUz$mLz$nLz$oLz$pLz$xUz$yUz$AVz$BVz$CVz$NSz$z$DVz$EVz$FVz$z$FBz$GVz$HVz$IVz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$JVz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$GBz$ABz$BBz$KVz$LVz$z$GBz$ABz$BBz$MVz$NVz$z$GBz$ABz$BBz$OVz$z$GBz$ABz$BBz$PVz$QVz$qz$RVz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$FSz$GSz$HSz$bUz$SVz$NSz$z$dUz$eUz$TVz$z$CBz$UVz$VVz$WVz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$XVz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$GBz$ABz$BBz$YVz$ZVz$z$JBz$KBz$LBz$aVz$bVz$cVz$z$GBz$ABz$BBz$KVz$LVz$z$JBz$KBz$LBz$dVz$eVz$fVz$z$GBz$ABz$BBz$gVz$hVz$iVz$z$JBz$KBz$LBz$jVz$kVz$lVz$fVz$z$GBz$ABz$BBz$mVz$nVz$z$JBz$KBz$LBz$oVz$pVz$XUz$z$qVz$KBz$LBz$rVz$sVz$tVz$PQz$uVz$dTz$z$GBz$ABz$BBz$KVz$LVz$z$GBz$ABz$BBz$vVz$wVz$z$GBz$ABz$BBz$YVz$ZVz$z$GBz$ABz$BBz$ABz$xVz$yVz$z$GBz$ABz$BBz$mVz$nVz$z$GBz$ABz$BBz$gVz$hVz$iVz$AWz$BWz$CWz$z$GBz$ABz$BBz$DWz$XUz$z$GBz$ABz$BBz$EWz$FWz$lz$z$GBz$ABz$BBz$GWz$HWz$z$GBz$ABz$BBz$IWz$JWz$XUz$z$GBz$ABz$BBz$ABz$xVz$yVz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$FSz$GSz$HSz$bUz$KWz$NSz$z$dUz$eUz$LWz$z$CBz$MWz$eUz$RUz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$NWz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$HLz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$dNz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$OWz$PWz$QWz$RWz$SWz$NSz$z$TWz$UWz$VWz$WWz$z$qVz$KBz$LBz$aRz$KVz$XWz$YWz$ZWz$z$CBz$EBz$aWz$bWz$WVz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$cWz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$CRz$DRz$ERz$HPz$IPz$NSz$z$IRz$dWz$eWz$z$CBz$fWz$dWz$RUz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$gWz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$FSz$GSz$HSz$hWz$iWz$HRz$z$jWz$kWz$lWz$z$CBz$mWz$nWz$WVz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$oWz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$FSz$GSz$HSz$pWz$qWz$rWz$cSz$z$IRz$sWz$tWz$z$FBz$uWz$vWz$wWz$z$pRz$z$xWz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$yWz$AXz$BXz$xQz$CXz$DXz$EXz$yBz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$FXz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$aBz$bBz$cBz$GXz$jBz$HXz$IXz$JXz$KXz$LXz$MXz$NXz$OXz$PXz$QXz$RXz$SXz$TXz$UXz$VXz$WXz$XXz$YXz$ZXz$aXz$bXz$cXz$dXz$eXz$z$fXz$gXz$hXz$iXz$jXz$kXz$lXz$mXz$nXz$oXz$pXz$qXz$rXz$sXz$tXz$uXz$vXz$wXz$xXz$yXz$AYz$BYz$CYz$DYz$EYz$FYz$GYz$HYz$IYz$JYz$sXz$KYz$LYz$MYz$z$NYz$OYz$PYz$QYz$gXz$RYz$SYz$TYz$UYz$VYz$WYz$XYz$YYz$ZYz$aYz$bYz$cYz$dYz$eYz$gXz$fYz$gYz$hYz$iYz$jYz$kYz$lYz$z$mYz$nYz$oYz$pYz$qYz$DYz$rYz$sYz$tYz$uYz$vYz$wYz$xYz$z$fXz$yYz$AZz$BZz$CZz$DZz$EZz$FZz$GZz$HZz$IZz$JZz$KZz$LZz$z$mLz$nLz$MZz$NZz$OZz$PZz$QZz$RZz$SZz$TZz$UZz$VZz$lVz$WZz$XZz$YZz$z$aYz$ZZz$aZz$bZz$cZz$rYz$dZz$eZz$fZz$gZz$hZz$iZz$jZz$kZz$lZz$mZz$nZz$oZz$pZz$qZz$z$mLz$nLz$rZz$sZz$tZz$BRz$uZz$vZz$wZz$xZz$yZz$yBz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$ZCz$aCz$Haz$Iaz$Jaz$Kaz$Laz$Maz$Naz$Oaz$Paz$Qaz$Raz$Saz$Taz$Uaz$Vaz$Waz$Xaz$Yaz$Zaz$aaz$baz$caz$daz$eaz$faz$gaz$haz$iaz$jaz$kaz$laz$maz$naz$oaz$paz$qaz$z$mLz$nLz$MZz$NZz$raz$saz$taz$uaz$vaz$waz$xaz$yaz$Abz$z$Bbz$Cbz$Dbz$Ebz$Fbz$Gbz$Hbz$Ibz$Jbz$Kbz$Lbz$faz$Mbz$Nbz$Obz$Pbz$Qbz$Rbz$Sbz$Tbz$Ubz$Vbz$Wbz$Xbz$Ybz$Zbz$abz$bbz$cbz$dbz$ebz$fbz$gbz$hbz$ibz$jbz$Bbz$kbz$lbz$mbz$z$mLz$nLz$rZz$sZz$tZz$BRz$uZz$vZz$wZz$xZz$yZz$yBz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$ZCz$aCz$nbz$obz$pbz$qbz$rbz$sbz$tbz$ubz$vbz$wbz$xbz$SXz$ybz$Acz$Bcz$Ccz$Dcz$Ecz$Fcz$Gcz$Hcz$Icz$Jcz$Kcz$Lcz$Mcz$Ncz$Ocz$Pcz$Qcz$Rcz$Scz$Tcz$Ucz$Vcz$ybz$Acz$Bcz$Wcz$WXz$Xcz$Hcz$Ycz$Zcz$acz$bcz$ccz$dcz$ecz$fcz$gcz$hcz$icz$jcz$kcz$lcz$mcz$XXz$ncz$ocz$pcz$qcz$sXz$rcz$scz$tcz$ucz$vcz$wcz$xcz$ycz$Kcz$Adz$Bdz$Cdz$Ddz$Edz$Fdz$Gdz$Hdz$Idz$Jdz$Kdz$Ldz$Mdz$Ndz$Odz$Pdz$Qdz$Rdz$DYz$Sdz$Tdz$Udz$Vdz$Vdz$Vdz$Wdz$Xdz$Ydz$Zdz$adz$bdz$cdz$ddz$edz$fdz$Tdz$Udz$Vdz$Vdz$Vdz$gdz$hdz$idz$jdz$kdz$ldz$mdz$ndz$odz$KYz$pdz$qdz$rdz$sdz$tdz$udz$vdz$wdz$xdz$ydz$Aez$Bez$Cez$Dez$Eez$Fez$Gez$Hez$Iez$Jez$Kez$aYz$ZZz$Lez$Mez$Nez$ybz$Acz$Bcz$Ccz$Oez$Pez$Qez$Rez$Sez$Tez$Uez$Vez$Wez$Pcz$Hez$Xez$Yez$Zez$aez$bez$cez$z$qaz$qaz$qaz$qaz$z$mLz$nLz$MZz$NZz$dez$eez$fez$gez$hez$iez$jez$kez$lez$mez$iez$nez$oez$pez$z$aYz$ZZz$aZz$LYz$qez$rez$sez$tez$uez$vez$wez$xez$yez$Afz$Bfz$Cfz$Dfz$Efz$edz$Ffz$Idz$Gfz$Hfz$Ifz$Jfz$Kfz$Lfz$Mfz$Nfz$Ofz$z$qaz$qaz$qaz$qaz$z$mLz$nLz$rZz$sZz$tZz$BRz$uZz$vZz$wZz$xZz$Pfz$pBz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$ZCz$aCz$nbz$Qfz$Rfz$Sfz$Tfz$Ufz$Vfz$Wfz$Xfz$ddz$Mdz$Yfz$Zfz$afz$bfz$cfz$dfz$efz$ffz$gfz$hfz$ifz$jfz$kfz$lfz$mfz$Jfz$WXz$nfz$ofz$pfz$qfz$rfz$gXz$sfz$tfz$ufz$vfz$wfz$xfz$yfz$Agz$Bgz$Cgz$Dgz$Egz$Adz$Fgz$Ggz$Hgz$Igz$sfz$LYz$qez$rez$sez$Jgz$Kgz$Lgz$Mgz$yez$Afz$Ngz$Zcz$Zcz$Ogz$Pgz$Qgz$Rgz$Sgz$Tgz$Ugz$Vgz$Wgz$Xgz$Ygz$Zgz$agz$bgz$cgz$z$dgz$egz$fgz$ggz$hgz$igz$jgz$z$mLz$nLz$rZz$sZz$tZz$BRz$uZz$vZz$wZz$xZz$kgz$z$Lez$lgz$mgz$ngz$ogz$pgz$qgz$rgz$sgz$tgz$ugz$vgz$wgz$xgz$ygz$adz$Ahz$Bhz$Chz$Dhz$gXz$sfz$Ehz$Fhz$Ghz$Hhz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$oGz$Pz$Ihz$Jhz$Khz$Lhz$Mhz$Nhz$Ohz$Phz$Qhz$Rhz$Shz$Thz$Uhz$z$Vhz$Whz$Xhz$Yhz$Zhz$z$ahz$bhz$chz$dhz$ehz$fhz$ghz$hhz$ihz$z$jhz$khz$lhz$mhz$z$nhz$ohz$phz$qhz$z$rhz$shz$thz$uhz$vhz$whz$xhz$yhz$Aiz$Biz$Ciz$Diz$Eiz$z$Fiz$Giz$Hiz$z$Iiz$Jiz$z$Kiz$Liz$Miz$z$Kiz$Niz$Oiz$z$Piz$Qiz$Riz$Siz$z$Piz$Tiz$Uiz$Viz$Wiz$Xiz$Yiz$z$Piz$Ziz$aiz$biz$ciz$z$Piz$diz$eiz$fiz$z$Piz$Tiz$giz$z$Piz$hiz$iiz$z$Piz$Tiz$jiz$kiz$liz$z$miz$niz$oiz$z$piz$qiz$riz$z$siz$tiz$uiz$viz$wiz$xiz$yiz$Ajz$Bjz$Cjz$Djz$Ejz$Fjz$Gjz$Hjz$Ijz$Jjz$Kjz$Ljz$Mjz$Njz$Ojz$Pjz$Qjz$Rjz$ZOz$Sjz$z$Yhz$Tjz$Ujz$Vjz$Wjz$Xjz$Vhz$Yjz$z$mLz$nLz$rZz$sZz$tZz$BRz$uZz$vZz$wZz$xZz$Zjz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$ajz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$aBz$bBz$EHz$lPz$bjz$cjz$djz$z$aBz$bBz$cBz$GXz$jBz$ejz$fjz$gjz$hjz$ijz$jjz$kjz$ljz$mjz$njz$ojz$pjz$qjz$rjz$sjz$tjz$ujz$vjz$wjz$xjz$yjz$Akz$Bkz$jjz$Ckz$Dkz$pHz$Ekz$Fkz$Gkz$Hkz$Ikz$Jkz$Kkz$Lkz$Mkz$Nkz$Okz$Pkz$Qkz$Rkz$Skz$Tkz$Ukz$Vkz$Wkz$Xkz$Ykz$Zkz$akz$bkz$ckz$dkz$ekz$fkz$gkz$hkz$ikz$jkz$kkz$lkz$mkz$pCz$Zkz$nkz$okz$pkz$qkz$Zkz$rkz$skz$tkz$ukz$vkz$wkz$xkz$ykz$Alz$Blz$Clz$Dlz$Elz$yZz$yBz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$EHz$lPz$bjz$cjz$Flz$z$aBz$bBz$cBz$GXz$jBz$ejz$Glz$Hlz$Ilz$Jlz$Klz$Llz$Mlz$Nlz$Olz$Plz$Qlz$Rlz$Slz$Tlz$Ulz$sjz$Vlz$Wlz$Ykz$Xlz$Ylz$Zlz$alz$blz$clz$rhz$Wlz$dlz$elz$flz$Zkz$glz$hlz$ilz$jlz$klz$llz$mlz$nlz$Zlz$alz$yMz$Zkz$olz$sjz$plz$qlz$rlz$slz$tlz$ulz$vlz$wlz$xlz$plz$ylz$Amz$Bmz$pHz$Cmz$Dmz$ojz$Emz$Fmz$Gmz$Hmz$Imz$Jmz$Kmz$Lmz$tlz$Mmz$Nmz$Omz$Pmz$Qmz$Rmz$Smz$Zkz$Tmz$Umz$Vmz$Wmz$Xmz$BNz$dEz$ebz$vjz$Ymz$Zmz$amz$bmz$cmz$dmz$Alz$emz$Pfz$fmz$gmz$hmz$imz$jmz$kmz$lmz$mmz$Plz$nmz$omz$Wlz$pmz$yBz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$EHz$lPz$bjz$cjz$JGz$z$aBz$bBz$cBz$GXz$jBz$ejz$qmz$rmz$ijz$smz$tmz$Alz$umz$vmz$rjz$sjz$wmz$ujz$vjz$xmz$ymz$Wmz$Anz$Bnz$Cnz$Dnz$Kmz$Enz$Fnz$Gnz$Hnz$Alz$Inz$Vkz$Jnz$Knz$Hnz$Lnz$Mnz$Nnz$Onz$flz$Zkz$glz$hlz$Pnz$Qnz$Rnz$DCz$dkz$Snz$Zkz$Tnz$Unz$Ulz$sjz$Vnz$Wnz$Xnz$Ynz$Znz$anz$bnz$cnz$tlz$Gmz$dnz$enz$ijz$smz$fnz$gnz$hnz$Mkz$inz$jnz$knz$xjz$lnz$mnz$Klz$rkz$nnz$onz$Akz$qlz$pnz$Wmz$qnz$rnz$snz$tnz$unz$vnz$wnz$Zkz$xnz$ynz$tnz$Aoz$Boz$Coz$Doz$Eoz$Foz$Ilz$Goz$rhz$Znz$Hoz$Ioz$Joz$Koz$Loz$Moz$Noz$Ooz$plz$Poz$Qoz$Roz$Soz$Toz$Uoz$Voz$Clz$Woz$Xoz$Yoz$yZz$yBz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$EHz$lPz$bjz$cjz$Zoz$z$aBz$bBz$cBz$GXz$jBz$aoz$boz$ijz$smz$tmz$Alz$umz$vmz$coz$doz$eoz$foz$goz$hoz$ioz$Ykz$Xlz$Ylz$qlz$joz$koz$loz$moz$bkz$noz$ooz$poz$qoz$roz$Lnz$Mnz$soz$toz$uoz$Toz$yjz$voz$woz$ojz$xoz$yoz$Apz$Bpz$Cpz$Alz$Dpz$Epz$Fpz$dEz$Gpz$enz$CSz$Hpz$Ipz$Jpz$Kpz$tlz$ulz$vlz$wlz$xlz$plz$ylz$Amz$Bmz$pHz$Cmz$Lpz$Mpz$Ilz$Npz$ojz$Emz$Fmz$Tmz$Opz$clz$Ppz$ijz$smz$Qpz$SRz$Rpz$Spz$Tpz$Upz$Vpz$Wpz$Xpz$Ypz$Zpz$apz$bpz$dEz$cpz$dpz$vnz$wnz$Zkz$Tmz$Umz$epz$fpz$Foz$Ilz$Goz$Zkz$gpz$hpz$ipz$jpz$Ioz$Joz$Koz$Loz$Moz$Noz$Ooz$plz$Poz$Qoz$kpz$lpz$mpz$ulz$Tkz$Ukz$Vkz$Plz$Qlz$Rlz$qlz$npz$opz$qlz$ppz$Elz$yZz$yBz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$EHz$lPz$bjz$cjz$qpz$z$aBz$bBz$cBz$GXz$jBz$rpz$Okz$spz$jCz$ijz$smz$tpz$Nlz$upz$pmz$vpz$wpz$xpz$ypz$Ilz$Goz$Aqz$hnz$Mkz$Bqz$shz$Cqz$Dqz$Eqz$Fqz$Foz$Ilz$Gqz$ojz$xoz$Hqz$Iqz$Jqz$knz$Kqz$pmz$Lqz$dEz$Mqz$Nqz$Oqz$Pqz$Qqz$Rqz$Sqz$Tqz$Uqz$Vqz$Tkz$dGz$Wqz$Alz$enz$Xqz$PQz$Yqz$Ilz$Goz$Mnz$Zqz$aqz$bqz$bkz$cqz$dqz$eqz$fqz$gqz$hqz$iqz$dEz$jqz$kqz$lqz$mqz$nqz$oqz$Zkz$Tnz$pqz$qqz$xoz$rqz$bmz$dEz$Akz$qlz$dpz$Alz$enz$Xqz$PQz$Yqz$Ilz$Goz$Mnz$wmz$okz$sqz$tqz$uqz$vqz$Ilz$Goz$xZz$Pfz$pBz$z$aBz$bBz$EDz$FDz$Aaz$Baz$Caz$Daz$Eaz$Faz$Gaz$hCz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$wqz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$ZCz$aCz$xTz$pHz$yTz$ABz$BBz$nHz$AUz$yBz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$SBz$TQz$UQz$VQz$WQz$XQz$PQz$YQz$ZQz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$uQz$vQz$wQz$xQz$yQz$ARz$BRz$FSz$GSz$HSz$xqz$yqz$Arz$cSz$z$Brz$Crz$RQz$z$FBz$Drz$yqz$Erz$UTz$z$aBz$bBz$iCz$jCz$PRz$dEz$QRz$RRz$SRz$TRz$URz$VRz$RQz$WRz$XRz$z$hEz$YRz$ZRz$aRz$bRz$mPz$nPz$cRz$dRz$eRz$fRz$z$MCz$gRz$z$kz$lz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$pRz$z$Frz$z$kz$lz$z$MCz$YJz$z$LQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$pEz$z$aBz$bBz$ZCz$aCz$Grz$Hrz$Irz$Jrz$vMz$nHz$Krz$Lrz$Mrz$Nrz$SQz$z$aBz$bBz$EDz$FDz$oEz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$fBz$BFz$z$SBz$TQz$UQz$VQz$WQz$Orz$ePz$Prz$JGz$z$vDz$wDz$xDz$aQz$bQz$OIz$z$ACz$ZJz$aJz$bJz$cQz$dQz$eQz$QIz$xDz$aQz$fQz$z$REz$z$aBz$gQz$hQz$iQz$jQz$kQz$lQz$mQz$vGz$z$TEz$z$aBz$bBz$ZCz$aCz$Irz$Jrz$vMz$Qrz$Rrz$Srz$Trz$yBz$z$sz$tz$uz$vz$z$aBz$bBz$ZCz$aCz$Irz$Urz$Vrz$Wrz$Xrz$Srz$Srz$Yrz$z$sz$wz$xz$yz$z$aBz$bBz$ZCz$aCz$Irz$Zrz$arz$brz$DBz$Smz$brz$crz$Srz$Srz$Yrz$z$sz$ABz$BBz$CBz$DBz$yz$z$sz$ABz$BBz$CBz$EBz$yz$z$aBz$bBz$ZCz$aCz$Irz$Zrz$arz$drz$Srz$Srz$erz$z$sz$ABz$BBz$FBz$rz$z$aBz$bBz$ZCz$aCz$Irz$Zrz$arz$frz$grz$Srz$Srz$pBz$z$GBz$ABz$BBz$HBz$IBz$vz$z$aBz$bBz$ZCz$aCz$Irz$Zrz$arz$drz$hrz$irz$Srz$Srz$Yrz$z$JBz$KBz$LBz$MBz$NBz$z$aBz$bBz$ZCz$aCz$Irz$jrz$krz$lrz$mrz$nrz$Srz$Trz$yBz$z$uQz$orz$z$hRz$iRz$jRz$iNz$kRz$z$FBz$lRz$mRz$nRz$oRz$z$aBz$bBz$iCz$jCz$uHz$iNz$prz$kNz$lNz$mNz$qrz$rrz$z$pRz$z$srz$z$MCz$trz$z$aBz$bBz$EDz$FDz$urz$vrz$wrz$xrz$gPz$yrz$Asz$Bsz$yBz$z$pDz$pRz$z$Csz$z$aBz$bBz$EHz$lPz$BQz$Dsz$Esz$fjz$xrz$gPz$yrz$yBz$z$pRz$z$Fsz"
+#!/bin/bash
+
+# Warna
+blue='\033[34;1m'
+green='\033[32;1m'
+purple='\033[35;1m'
+cyan='\033[36;1m'
+red='\033[31;1m'
+white='\033[37;1m'
+yellow='\033[33;1m'
+orange='\033[31;1m'
+normal='\033 [ 0m'
+reset='\033[0m'
+
+
+# Persiapan Modulnya
+
+clear 
+
+termux-setup-storage -y 
+clear
+pkg update -y
+pkg upgrade -y
+pkg install python2 -y
+pkg install python3 -y
+pkg install bash -y
+pip install psutil -y
+pip2 install bash -y
+pkg install coreutils grep
+
+clear
+
+
+# File penyimpanan ID
+FILE_ID="ID-Termux"
+
+# Animasi login Brasill 
+animasi() {
+clear
+echo -e "\033[32;1m╔══════════════════════════════════════════════╗"
+echo -e "\033[32;1m║ \033[31;1m             ID TERVERIFIKASI "
+echo -e "\033[32;1m╚══════════════════════════════════════════════╝"
+echo -e "\033[32;1m╔══════════════════════════════════════════════╗"
+echo -e "\033[32;1m║ \033[31;1m           SCRIPT DAPAT DI AKSES "                    
+echo -e "\033[32;1m╚══════════════════════════════════════════════╝"
+  mpv --no-terminal --quiet --volume=200 IDV1.mp3
+  sleep 2
+}
+
+# Animasi login Gagall
+animasi_gagal() {
+clear
+echo -e "\033[32;1m╔══════════════════════════════════════════════╗"
+echo -e "\033[32;1m║ \033[31;1m           ID TIDAK TERVERIFIKASI "
+echo -e "\033[32;1m╚══════════════════════════════════════════════╝"
+echo -e "\033[32;1m╔══════════════════════════════════════════════╗"
+echo -e "\033[32;1m║ \033[31;1m         SCRIPT TIDAK DAPAT DI AKSES "                    
+echo -e "\033[32;1m╚══════════════════════════════════════════════╝"
+  echo -e "${cyan} ID TIDAK TERVERIFIKASI !! "
+  echo -e "${orange} ID Termux Anda Belum Terdaftar !!  Silakan PREMIUM Dulu Ke Thonxyzz404!!"
+  echo -e "${yellow} PERINGATAN !! JIKA ANDA MEMAKSA UNTUK LOGIN SEBANYAK 5X DENGAN SECARA PAKSA JANGAN SALAHKAN TOOLSV7 JIKA HP ANDA KENAPA-KENAPA !!! "
+  mpv --no-terminal --quiet --volume=200 IDV2.mp3
+  exit
+}
+
+# Cek ID Termux 
+ID_TERMUX=$(whoami)
+if [ -f "$FILE_ID" ]; then
+  animasi
+  if grep -q "$ID_TERMUX" "$FILE_ID"; then
+    echo -e "${green}ID Termux: $ID_TERMUX"
+  else
+    animasi_gagal
+  fi
+else
+  exit
+fi
+
+clear 
+
+# Tampilan awal
+clear
+echo -e "${cyan} Silahkan Masukkan Username && Masukkan Paswordnya!!"
+
+# Meminta username
+read -p " Masukkan-Username : " username
+
+# Animasi loading banner
+echo -e "${yellow}══════════════════════════════════════════════════╗"
+echo -e "${blue} Scanning Online By.Thonxyzz404"                                                                                   
+echo -e "${yellow}══════════════════════════════════════════════════╝"
+echo -e "${cyan} 
+
+
+⠤⣤⣤⣤⣄⣀⣀⣀⣀⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⣀⣠⣤⠤⠤⠴⠶⠶⠶⠶
+⢠⣤⣤⡄⣤⣤⣤⠄⣀⠉⣉⣙⠒⠤⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣠⠴⠘⣉⢡⣤⡤⠐⣶⡆⢶⠀⣶⣶⡦
+⣄⢻⣿⣧⠻⠇⠋⠀⠋⠀⢘⣿⢳⣦⣌⠳⠄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠞⣡⣴⣧⠻⣄⢸⣿⣿⡟⢁⡻⣸⣿⡿⠁
+⠈⠃⠙⢿⣧⣙⠶⣿⣿⡷⢘⣡⣿⣿⣿⣷⣄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢠⣾⣿⣿⣿⣷⣝⡳⠶⠶⠾⣛⣵⡿⠋⠀⠀
+⠀⠀⠀⠀⠉⠻⣿⣶⠂⠘⠛⠛⠛⢛⡛⠋⠉⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠉⠉⠉⠛⠀⠉⠒⠛⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀⢸⠃⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀⣾⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀⣿⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⢻⡁⠀⠀⠀⠀⠀⢸⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠘⡇⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⡇⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠿⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
+
+"
+# Periksa file Sound.mp3
+FILE_MUSIK="Sound.mp3"
+
+if [ -f "$FILE_MUSIK" ]; then
+  echo -e "${orange} Sedang Memeriksa Username Harap Tunggu!!!"
+
+  # Mainkan musik Sound.mp3 di latar belakang dengan mode senyap
+  play -q "$FILE_MUSIK" &
+
+  for i in {1..10}; do
+    echo -ne "\r${yellow} Loading!!" "${cyan}[${i}0%] "
+    sleep 0.1
+    echo -ne "\r${yellow} Loading!!" "${cyan}[${i}0%]"
+    sleep 0.2
+  done
+
+  echo -ne "\r${yellow} Loading!!" "${cyan}[100%]"
+  echo -e "${green} Loading Selesai!!!"
+  echo ""
+else
+  echo -e "${red}File Sound.mp3 tidak ditemukan!"
+fi
+
+# Meminta password
+read -sp "Masukkan Passwordnya!!! : " password
+echo ""
+
+# Periksa password
+if [ "$username" = "Thonxyzz404" ] && [ "$password" = "케옌조이키마시베" ]; then
+  echo -e "${cyan} Lu beban!! Cuman Modall Recode Tools Orang doang wkwkw 😂☕"
+  clear
+else
+  echo -e "${orange} Password atau Username Salah!! Silahkan Coba Lagi!!!."
+  exit 1
+fi
+
+# Musik Otomatis
+if ! pgrep -f mpv; then
+mpv --quiet --no-video --volume=95 --terminal=no Musik1.mp3 Musik2.mp3 Musik3.mp3 Musik4.mp3 Musik5.mp3 Musik6.mp3 Musik7.mp3 Musik8.mp3 &
+else
+clear
+fi
+
+# Teks penyambutan
+teks="${orange} Terimakasih Banyak Semuanya Yang Sudaah Join Toolsv7 Semoga Bermanfaat 😇🙏${reset}"
+
+# Animasi Karakter Per Karakter
+for ((i=0; i<${#teks}; i++)); do
+  echo -ne "\r${teks:0:$i+1}"
+  sleep 0.05
+done
+
+# Menghilangkan teks
+echo -e "\r\033[K"
+sleep 1
+
+# Putar suara
+mpv --volume=200 --no-video --loop=0 SoundV2.mp3
+
+# Membersihkan layar
+clear
+
+# Banner
+echo -e "${yellow}══════════════════════════════════════════════════════════════════════╗"
+echo -e "${cyan} Scanning Online By.Thonxyzz404"                                                                                                                                               
+echo -e "${yellow}══════════════════════════════════════════════════════════════════════╝"
+echo -e "${red}
+
+         ███████████████████████████
+         ███████▀▀▀░░░░░░░▀▀▀███████
+         ████▀░░░░░░░░░░░░░░░░░▀████
+         ███│░░░░░░░░░░░░░░░░░░░│███
+         ██▌│░░░░░░░░░░░░░░░░░░░│▐██
+         ██░└┐░░░░░░░░░░░░░░░░░┌┘░██
+         ██░░└┐░░░░░░░░░░░░░░░┌┘░░██
+         ██░░┌┘▄▄▄▄▄░░░░░▄▄▄▄▄└┐░░██
+         ██▌░│██ᯤ█▌ ░ ░ ░▐█ᯤ███│░▐██
+         ███░│▐███▀▀░░▄░░▀▀███▌│░███
+         ██▀─┘░░░░░░░▐█▌░░░░░░░└─▀██
+         ██▄░░░▄▄▄▓░░▀█▀░░▓▄▄▄░░░▄██
+         ████▄─┘██▌░░░░░░░▐██└─▄████
+         █████░░▐█─┬┬┬┬┬┬┬─█▌░░█████
+         ████▌░░░▀┬┼┼┼┼┼┼┼┬▀░░░▐████
+         █████▄░░░└┴┴┴┴┴┴┴┘░░░▄█████
+         ███████▄░░░░░░░░░░░▄███████
+         ██████████▄▄▄▄▄▄▄██████████
+         ███████████████████████████
+             
+"              
+echo -e "${purple}═══════════════════════════════════════════════════════════════════════════════════╗"
+echo -e "${yellow}◉${cyan} AUTHOR : 🜲 𝐁𝐲.𝐓𝐡𝐨𝐧𝐱𝐲𝐳𝐳𝟒𝟎𝟒 🜲"
+echo -e "${orange}◉${cyan} IP Address Kamu=$(curl -s ifconfig.me)"$IP" "
+echo -e "${blue}◉${cyan} Github=https://github.com/Cyber404119"
+echo -e "${orange}◉${cyan} Your ID: $( whoami )"
+echo -e "${blue}◉${cyan} Toolsv7-Premium"
+echo -e "${green}◉${cyan} Rilis 17 Desember 2024"
+echo -e "${orange}◉${cyan} Setatus-Online : $( ps aux | grep -c "pts/" )"
+echo -e "${yellow}◉${cyan} SELAMAT DATANG DII TOOLSV7 🤡🔥"
+echo -e "${purple}◉${cyan} Jaam=$(date +"%H:%M:%S")"
+echo -e "${orange}◉${cyan} Tanggal=$(date +"%d-%m-%Y")"
+echo -e "${yellow}◉${cyan} Sekarang Hari=$(date +"%A")"
+echo -e "${blue}◉${cyan} Jumlah Pengguna=$(ps -o user= | sort -u | wc -l)"
+echo -e "${yellow}◉${orange} LAPORKAN BUG JIKA ADA BUG DI TOOLSV7 NOMER TELEPON SAYA : 6285691587665 "
+echo -e "${purple}═══════════════════════════════════════════════════════════════════════════════════╝"
+echo -e "${cyan}╰┈➤${blue} All-Projects=BY THONXYZZ404 ┃"
+echo -e "${purple}════════════════════════════════╝"
+echo -e "${red}║ ║                    ║ ║"
+echo -e "${blue}═════════════════════════════════════════╗"
+echo -e "${green}╰┈➤${yellow} [CY404]✦︎ Jangan Salah Gunakan Brow !!! "
+echo -e "${blue}═════════════════════════════════════════╝"
+echo -e "${red}║ ║                          ║ ║"
+echo -e "${red}║ ║                          ║ ║"
+echo -e "${yellow}═════════════════════════════════════════╗"
+echo -e "${orange}    ☣︎ MENU SPAMMER WHATSAPP ☣︎"
+echo -e "${yellow}═════════════════════════════════════════╝"
+echo -e "${blue}➣ ${green}[01]◉ SPAM PAIRV1 "                                   
+echo -e "${blue}➣ ${green}[02]◉ SPAM PAIRV2 "                                                   
+echo -e "${blue}➣ ${green}[03]◉ SPAM PAIRV3 "                                                     
+echo -e "${blue}➣ ${green}[04]◉ SPAM PAIRV4 "                                                    
+echo -e "${blue}➣ ${green}[05]◉ SPAM PAIRV5 "                                                  
+echo -e "${blue}➣ ${green}[06]◉ SPAM PAIRV6 "                                                    
+echo -e "${blue}➣ ${green}[07]◉ SPAM PAIRV7 "                                                   
+echo -e "${blue}➣ ${green}[08]◉ SPAM PAIRV8 "
+echo -e "${yellow}═════════════════════════════════════════╗"
+echo -e "${orange}    𖤍 MENU PSHING && HACKING 𖤍"
+echo -e "${yellow}═════════════════════════════════════════╝"                                
+echo -e "${green}➣ ${cyan}[09]◉ Encode Bash "                                                        
+echo -e "${green}➣ ${cyan}[10]◉ OSINT-NIK "                                                       
+echo -e "${green}➣ ${cyan}[11]◉ Followers "                                                           
+echo -e "${green}➣ ${cyan}[12]◉ DDOS-ATCCK "                                                           
+echo -e "${green}➣ ${cyan}[13]◉ IP-TRACKER "                                                    
+echo -e "${green}➣ ${cyan}[14]◉ Shiroko Osint "                                                    
+echo -e "${green}➣ ${cyan}[15]◉ Termux-Temaa "                                           
+echo -e "${green}➣ ${cyan}[16]◉ ZPHISHER "                                                 
+echo -e "${green}➣ ${cyan}[17]◉ OSINTV3 "                                                
+echo -e "${green}➣ ${cyan}[18]◉ OSINT-NOMER "                                     
+echo -e "${green}➣ ${cyan}[19]◉ OSINT-TRACK "                                         
+echo -e "${green}➣ ${cyan}[20]◉ OSINT-NIK404                                               
+echo -e "${green}➣ ${cyan}[21]◉ DDOS-LAYER-7 "  
+echo -e "${green}➣ ${cyan}[22]◉ SHIROKOV7 "
+echo -e "${green}➣ ${cyan}[23]◉ View Tiktok "
+echo -e "${green}➣ ${cyan}[24]◉ BANNED WHATSAAP "
+echo -e "${green}➣ ${cyan}[25]◉ UBANNED WHATSAPP "
+echo -e "${green}➣ ${cyan}[26]◉ All-Tools "
+echo -e "${orange}➣ ${yellow}[99]◉ Update-Toolsv7 "                                
+echo -e "${orange}➣ ${yellow}[00]◉ Keluar "                                                        
+echo -e "${purple}══════════════════════════════════════════════════════════════════════╗"
+echo -e "${red} Silahkan Pilihlah Menu TOOLSV7 [ 😈🔥 ]"                                                                                                                                                                        
+echo -e "${purple}══════════════════════════════════════════════════════════════════════╝"
+echo  -e "${purple}║"
+echo  -e "${purple}║"
+echo  -e "${purple}║"
+echo  -e "${purple}║"
+echo  -e "${purple}║"
+read -p "╚════Silahkan Pilihlah Menu[ 🤡🔥 ]═════════•➤  : " kuy
+
+# Logika Menu
+case $kuy in
+  1)
+    clear
+    sleep 1
+    cd 
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    apt install nodejs git -y
+    apt install yarn -y
+    aptt install npm -y
+    git clone https://github.com/HengkerV78/SpamV80.git
+    cd SpamV80
+    npm install
+    yarn install
+    npm start
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  2)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    apt install nodejs git -y
+    apt install yarn -y
+    aptt install npm -y
+    npm install
+    yarn install
+    git clone https://github.com/HanzzAltar/Spam-pairing-V1
+    cd Spam-pairing-V1
+    node spam.js
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  3)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    apt install nodejs git -y
+    apt install yarn -y
+    aptt install npm -y
+    git clone https://github.com/Cyber404119/Spam-Pairing-CodeV1.git
+    cd Spam-Pairing-CodeV1
+   npm install
+   yarn install
+   npm start
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  4)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    apt install nodejs git -y
+    apt install yarn -y
+    aptt install npm -y
+    yarn install
+    npm install 
+    git clone https://github.com/ZeltNamizake/spcwa
+    cd spcwa
+    npm start
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  5)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    apt install nodejs git -y
+    apt install yarn -y
+    aptt install npm -y
+    git clone https://github.com/Reyvknd/Spam-Pairing-Code.git
+    cd Spam-Pairing-Code
+    npm install 
+    yarn install
+    npm start
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  6)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    apt install nodejs git -y
+    apt install yarn -y
+    aptt install npm -y
+    git clone https://github.com/HengkerV78/SpamV78.git
+    cd SpamV78
+    npm install
+    yarn install
+    npm start
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  7)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    git clone https://github.com/Sxp-ID/Brutal-W4
+    cd Brutal-W4
+    make install
+    ./main
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  8)
+    clear 
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    pkg install libwebp -y
+    pkg install nodejs -y
+    pkg install ffmpeg -y
+    pkg install wget -y
+    pkg install imagemagick -y
+    pkg install npm -y
+    pkg install yarn -y
+    git clone https://github.com/HengkerV78/SpamExon.git
+    cd SpamExon
+    yarn install
+    npm start
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  9)
+    clear 
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+   pkg install python2
+   pkg install git
+   git clone https://github.com/pembriahmad/Bash-Crypt
+   cd Bash-Crypt
+   chmod +x install-crypt.sh
+   bash install-crypt.sh
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+ 10)
+   clear 
+   sleep 1
+   cd 
+echo -e "${yellow}══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+   pkg install golang
+   pkg install git 
+   git clone https://github.com/Mr-Pstar7/NIK-checker
+   cd NIK-checker
+   go build
+   chmod +x *
+   ./ktp-checker
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+ 11)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${red} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    pkg install php
+    git clone https://github.com/Inject-ID/tiktok-followers
+    cd tiktok-followers
+    php bot.php
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  12)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+   pip install requests
+   pip install rich
+   pip install threading
+  git clone https://github.com/Cyber404119/DDOS404.git
+  cd DDOS404
+  python Doss404.py
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  13)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    git clone https://github.com/Makky2693/Lacak-IP
+    cd Lacak-IP
+    python2 Lacak-IP.py
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  14)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+  pkg update && pkg upgrade 
+  pkg update curl
+  pkg install curl 
+  git clone https://github.com/Cyber404119/OsintV1.git
+  cd OsintV1
+  bash Tomz404.sh
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+    ;;
+  15)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    git clone https://github.com/h20-studio/T4MPILAN-V5
+    cd T4MPILAN-V5
+    python2 style5.py
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+     ;;
+   16)
+     clear
+     sleep 1
+     cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+     git clone --depth=1 https://github.com/htr-tech/zphisher.git
+
+    cd zphisher
+
+    bash zphisher.sh
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+     ;;
+    17)
+      clear
+      sleep 1
+      cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    pip install requests
+    pip install pyfiglet
+    pip install uuid
+    pip install fake-useragent
+    git clone https://github.com/Cyber404119/OsintV3.git
+    cd OsintV3
+    python main.py
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+     ;;
+   18)
+     clear
+     sleep 1
+     cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    pip install colorama
+    pip2 install colorama
+    pip install requests
+    pip2 install requests
+    pip install phonenumbers
+    pip2 install phonenumbers
+    pip install datetime
+    pip2 install datetime
+    pip3 install --upgrade instaloader
+    pip install requests
+    pip install urllib
+    pip install colorama
+    pip install instaloader
+    pip install datetime
+    pip install phonenumbers as pnumb
+    pip install parse
+    pip install  geocoder
+    pip install carrier
+    pip install  timezone
+    pip install instaloader
+    git clone https://github.com/Cyber404119/OsintV2.git
+    cd OsintV2
+    python osint.py
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+     ;;
+   19)
+    clear 
+    sleep 1
+    cd
+echo -e "${yellow}═══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}═══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+    git clone https://github.com/HunxByts/GhostTrack.git
+    cd GhostTrack
+    pip3 install -r requirements.txt
+    python3 GhostTR.py
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+     ;;
+  20)
+    clear
+    sleep 1
+    cd
+echo -e "${yellow}══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+  git clone https://github.com/Cyber404119/OSINT-NIK404.git
+  cd OSINT-NIK404
+  python tes.py
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+  ;;
+ 21)
+   clear
+   sleep 1
+   cd
+echo -e "${yellow}══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+  git clone https://github.com/Cyber404119/DDOSV7.git
+  cd DDOSV7
+  python doss.py
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+  ;;
+ 22)
+   clear
+   sleep 1
+   cd
+echo -e "${yellow}══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+  git clone https://github.com/Cyber404119/SHIROKOV7.git
+  cd SHIROKOV7
+  bash sokrun.sh
+   ;;
+  23)
+   clear
+   sleep 1
+   cd
+echo -e "${yellow}══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+xdg-open "https://zefoy.com/"
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+   ;;
+  24)
+   clear
+   sleep 1
+   cd
+echo -e "${yellow}══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+echo -e "\033[36;1m مرحبًا، مساء الخير، اسمحوا لي أن أقدم نفسي، اسمي فرانكسبلوت، أنا هنا لفتح خدمة قتل وحشية عميقة
+لقد قتل نظام البث المباشر الخاص بي 💀 حوالي 300 ضحية من الذكور والإناث، كما قتلت 🗡️ الحكومة المركزية عن طريق خداع الهدف من خلال النظر
+لأنني كثيرا ما أقتل لذلك أشعر بالملل دون أن يأمرني أحد، إذا طلب أحد خدمات القتل فأنا مستعد لذبح الجميع ⚠️
+غالبًا ما أقوم بالبث المباشر على XGORE مع الضحايا
+لقد قطعت أعضاء جسده وأخذت كليتيه وعينيه وأعضائه الأخرى
+https://xgore.net/gore-video-jun-lins-body-dismemberment-case/
+إذا كنت تريد رؤيتي مباشرة وتريد التواصل مع خدماتي، يرجى الاتصال بي أدناه 💀👇
+https://api.whatsapp.com/send?phone=+62xxxx "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+echo -e "${cyan} Merhaba efendim beni tanıyor musunuz? Tamam, size kendimi tanıtacağım. Adım videoda yüzlerce insanı öldüren katil bir palyaço💀 Çizikler 👇👇👇
+
+https://xgore.net/decapitation-of-dead-man-in-haiti/
+
+İnsan Vücudu Organlarını satın almak istiyorsanız😈Lütfen En Kısa Sürede Bize Ulaşın📲Daha Sonra Vücut Organlarını Hazırlayacağım👹🔥İnsan Veya İnsan Eti👇👇👇
+
+https://api.whatsapp.com/send?phone=+62xxxx "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+echo -e "${cyan} مرحبًا، هل تعرفني😈 حسنًا سأعرفك على نفسي. اسمي ماركوسيكوبات بادوت🤡 أشهر جريمة قتل ومخيفة في جميع أنحاء العالم👹🔥حسنًا سأخبرك عن تجربتي😈 ماركوسيكوبات هو أنا لقد قتلت 50000. 000 مليون قتلت مئات الأشخاص في عام 2016💀☠️ جئت إلى هنا للبحث عن المزيد من الفرائس لبيعها الأعضاء الداخلية في جسم الإنسان التي أريد بيعها😈🔪إذا كنت لا تريدني أن أفترس، من فضلك حول لي المال. بقيمة 10,000,000,000💸 💵في وقت قصير إذا لم تحول لي أموالاً بقيمة 10,000,000,000💸💵سوف آتي إلى منزلك مع أصدقائي💀🔪خلال 5 دقائق😈أمثلة لأشخاص قمت بقتلهم أو اختراقهم👽🗡️ عليك فقط أن تفتح الرابط الخاص بي إذا كنت لا تصدق أنني ماركوسيكوبات بادوت الذي يخافه كل شخص على هذه الأرض 👹🔥الرابط هو تارو بالأسفل...
+👇👇👇👇👇👇👇👇
+
+https://xgore.net/chopping-up-a-man-with-his-hands-tied-with-a-machete/
+
+
+إذا كنت تريد النجاة من هذا التهديد، فاتصل بنا على الفور ولا تنس تحويل الأموال إذا كنت تريد النجاة من هذا التهديد القاتل.
+👇👇👇👇👇👇👇👇
+https://api.whatsapp.com/send?phone=+62xxxxx "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+echo -e "${cyan} مرحبًا يا مستخدمي الواتس اب، اسمحوا لي أن أقدم نفسي، أنا عميل (مايكل برونسون). لست بحاجة إلى معرفة حقيقة من أنا. طفلك في مكاننا، سأقتل طفلك وأبيع دماغه وأمعائه والقضيب وجميع أعضاء الجسم الأخرى. إذا أراد طفلك النجاة من هذا الحادث، استبدل على الفور 300.000.000.00 إذا لم تسترد المال فلن أتردد في طعن طفلك في رأسه🔪🔪☠️☠️.
+اتصل بالرقم أدناه فورا !!!
+
+https://api.whatsapp.com/send?phone=+62xxx
+
+لا تخبر هذه القضية لأي شخص أبدًا، ولا تخبر هذه القضية للشرطة إذا أخبرت الشرطة سأقتل طفلك الآن !!!🔪😈 "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+echo -e  "${cyan} DAPATKAN PREDIKSI DAN RTP FRATIS SETIAP HARI!!!
+シトゥス・テラマンとテルペルカヤ 💯
+DEPO HARI INI LANGSUNG DAPAT ボーナス!!!
+🦋最低入金額 20,000
+🦋 最低出金額 50,000
+dengan modal receh bisa dapat フリースピン SATU PUTARAN
+ボーナス新規メンバー
+✨デポ30+15
+✨ デポ50+25
+✨ デポ100+50
+💎 ボーナスアンチルンカド
+💎 ボーナススロット ウアン・ケンバリ 100%
+💎 ボーナスメンバー BARU 50%
+💎 ボーナスピーターハンター
+💎 ボーナススピン無料
+💎 ボーナス欠席
+💎 ボーナススポーツブック 2.5%
+
+🏅トーゲル40パサラン
+🏅 ゲームライブカジノ
+🏅 TEMBAK IKAN、Pragmatic、TOGEL、JOKER、IDN SLOT、HABANERO、PGSOFT、MICROGAMING、SPADE GAMING、TOP TREND GAMING DLL
+
+ペルカヤカン ホキ ム セカラン ジュガ ディ シトゥス カミ 
+
+https://api.whatsapp.com/send?phone=+62xxx "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+ ;;
+25)
+clear
+   sleep 1
+   cd
+echo -e "${yellow}══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+echo -e "${red} MTHODE V1"
+echo -e "\033[36;1m Kepada Developer Whatsapp yang terhormat Saya mau mengajukan Permohonan tolong buka akun whatsapp saya yang terkena ban di karena kan keisengan atas orang lain, tolong pertimbangkan lagi akun saya di karenakan banyak nya dokumentasi penting Yang belum saya Cadangkan Jadi saya mohon pertimbangkan lagi akun saya ini nomor : 62xxxxx "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+
+echo -e "${red} MTHODE V2"
+echo -e "\033[36;1m Kepada Tim WhatsApp,Saya ingin mengajukan permohonan untuk melakukan unban akun WhatsApp yang terhubung dengan alamat email saya. Saya mohon maaf atas kesalahan yang telah saya lakukan dan saya siap untuk mematuhi aturan dan kebijakan yang berlaku. Saya sangat mengandalkan WhatsApp untuk komunikasi sehari-hari dan saya berharap dapat menggunakan layanan tersebut kembali nomor saya : 62xxxxx Terima kasih atas perhatian dan pertimbangan anda "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+
+echo -e "${red} MTHODE V3"
+echo -e "\033[36;1m Kepada Admin WhatsApp, Saya ingin mengajukan permohonan untuk dapat di-unban dari WhatsApp dikarenakan saya disangka melakukan spam dari akun Gmail saya. Saya memberikan jaminan bahwa saya tidak melakukan tindakan spam dan berkomitmen untuk menggunakan WhatsApp sesuai dengan ketentuan yang berlaku. Saya mohon agar akun saya dapat diaktifkan kembali sehingga saya dapat kembali menggunakan layanan WhatsApp dengan baik. Terima kasih atas perhatian dan kerja sama yang diberikan. nomor saya : 62xxxx "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+
+echo -e "${red} MTHODE V4"
+echo -e "\033[36;1m Yth. Tim WhatsApp, Saya ingin menyampaikan permohonan agar akun WhatsApp saya yang diblokir karena dituduh sebagai spam dari Gmail dapat dibuka kembali. Saya memastikan bahwa saya tidak melakukan tindakan spam dan berjanji untuk mematuhi aturan dan kebijakan yang berlaku di WhatsApp. Saya sangat bergantung pada WhatsApp untuk berkomunikasi dengan teman, keluarga, dan rekan kerja, sehingga saya berharap agar ban WhatsApp saya segera dicabut. Terima kasih atas perhatian dan kerja samanya dalam mempertimbangkan permohonan saya. nomor saya : 62xxxxx "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+
+echo -e "${red} MTHODE V5"
+echo -e "\033[36;1m Halo orang-orang WhatsApp. Mengapa Anda memblokir akun WhatsApp Anda dengan alasan melanggar ketentuan WhatsApp? Saya mematuhi aturan yang Anda berikan kepada saya. Jika ada error/kelalaian seperti ini, saya akan uninstall WhatsApp dari Playstore, karena semakin diperbaiki maka akan semakin merepotkan jika saya tidak segera mengembalikan akun saya, saya akan uninstall WhatsApp dari perangkat saya, Nomor WhatsApp +62xxxxx "
+
+echo -e "${yellow} SILAHKAN SALIN MTHODENYA!!! "
+
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+  ;;
+ 26)
+  clear
+   sleep 1
+   cd
+echo -e "${yellow}══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+git clone https://github.com/Cyber404119/All-Tools.git
+cd All-Tools
+bash All-Tools.sh
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+   ;;
+ 404)
+  clear
+   sleep 1
+   cd
+echo -e "${yellow}══════════════════════════════════════╗"
+echo -e "${cyan} Sedang Menginstall Tools!!!"
+echo -e "${yellow}══════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Instalv1.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+git clone 
+echo -e "${orange}Tekan Enter Untuk Kembali ke Toolsv7!!!"
+read -n 1 -s -r -p "Silahkan Tekan Enter..."
+sleep 0
+clear
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+   ;;
+  99)
+clear
+sleep 1
+cd
+echo -e "${yellow}══════════════════════════════════════════════════════════╗"
+echo -e "${cyan}  Sedang Mengupdate Toolsv7 Harap Tunggu!!!"
+echo -e "${yellow}══════════════════════════════════════════════════════════╝"
+
+# Putar suara
+FILE="/sdcard/Instalv1/Update.mp3"
+if [ -f "$FILE" ]; then
+  mpv --volume=200 --really-quiet "$FILE" &
+else
+  echo "File tidak ditemukan!!" >&2
+fi
+# Update paket
+  echo -e "${cyan} Mengupdate Paket.......... "
+  pkg update -y
+  
+  # Upgrade paket
+  echo -e "${cyan} Mengupgrade Paket........... "
+  pkg upgrade -y
+  
+  # Instalasi python2 dan python3
+  echo -e "${cyan} Menginstal Python2 dan Python3.......... "
+
+  pkg install python2 -y
+  pkg install python3 -y
+  
+  # Instalasi bash
+  echo -e "${cyan} Menginstal Bash.......... "
+  pkg install bash -y
+  
+  # Instalasi psutil
+  echo -e "${cyan} Menginstal Psutil.......... "
+  pip install psutil -y
+  
+  # Instalasi bash (pip2)
+  echo -e "${cyan} Menginstal Bash (Pip2).......... "
+  pip2 install bash -y
+  
+  # Clone respository 
+echo -e "${cyan} Mengklone Repository.......... "
+git pull
+cd /sdcard/projekv45
+bash Thonxyzz404.sh
+
+echo -e "${orange} Projects BY THONXYZZ404 😎☕"
+    ;;
+  00) 
+   sleep 00
+   echo -e "${yellow}Keluar Dari Toolsv7!!!${reset}"
+   exit;;
+
+  *)
+    echo -e "${red} Menu Tidak Ada Di Toolsv7!!!"
+    ;;
+esac
