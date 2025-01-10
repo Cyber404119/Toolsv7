@@ -1,3 +1,10 @@
+# TOOLS V7
+
+## Screenshot
+
+![Screenshot Termux](IMG_20250110_195817.jpg)
+
+
 # Termux Instalasi 🖥️📡
 ```bash
 pkg install mpv
